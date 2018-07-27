@@ -1,10 +1,17 @@
----
 title: 到了布拉格就順便去Cesky Krumlov小鎮
 id: 2295
 categories:
   - 在台灣消失100天報告書
-date: 2017-10-27 02:32:36
 tags:
+  - 美食
+  - 景點
+  - 好吃
+  - 好玩
+  - 攻略
+  - 捷克
+  - CK小鎮
+  - Cesky Krumlov
+date: 2017-10-27 02:32:00
 ---
 
 &nbsp;
