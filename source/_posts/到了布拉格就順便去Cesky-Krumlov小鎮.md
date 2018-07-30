@@ -1,4 +1,4 @@
-title: 到了布拉格就順便去Cesky Krumlov小鎮
+title: Cesky Krumlov小鎮舒服又便宜！要去布拉格可以順便路過呢
 id: 2295
 categories:
   - 在台灣消失100天報告書
