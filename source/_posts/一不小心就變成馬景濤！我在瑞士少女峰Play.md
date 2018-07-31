@@ -25,17 +25,13 @@ date: 2017-11-10 02:12:00
 *   住宿：Downtown Lodge
 *   心得：一人約1500台幣一晚，算很清幽的青旅，有免費吃到飽的早餐是優點plus
 
-###
-
 <!--more-->
 
 ### 少女峰遊玩方式
 
 來之前覺得好難，來之後覺得好簡單，這張地圖就是少女峰及附近的聚落，入山口就是Interlaken因特拉肯，那裡是非常熱鬧的地方，要買什麼有什麼，旁邊兩個湖(Brienz跟圖恩湖Thunersee)也算大景點；Top of Europe是一定會去的，其他聚落自己稍微查一下看哪個有興趣就去～每個都去其實也可以！只差在交通費而已，這些地方也不用花門票錢，大自然免費！還有一堆動物可看呢～住在哪裡其實看自己喜歡怎樣的住宿環境，其實都不會花太多時間，這裡整體不算大。想知道確切要花多少時間就先去載好[瑞士鐵路](https://www.sbb.ch/en/home.html)SBS的APP，輸入站名（就是地圖上的名字）就可以正確估算囉！是否easy~
 
-[caption id="attachment_media-20" align="alignnone" width="1053"]![螢幕快照 2017-11-10 上午2.14.17.png](https://crazynatalie.files.wordpress.com/2017/11/e89ea2e5b995e5bfabe785a7-2017-11-10-e4b88ae58d882-14-17.png) 此圖片來源：[<span class="irc_ho" dir="ltr">utland.sj.se</span>](http://utland.sj.se/#/pass/jungfrau_passes/)[/caption]
-
-&nbsp;
+![少女峰交通路線圖](https://crazynatalie.files.wordpress.com/2017/11/e89ea2e5b995e5bfabe785a7-2017-11-10-e4b88ae58d882-14-17.png) 此圖片來源：[<span class="irc_ho" dir="ltr">utland.sj.se</span>](http://utland.sj.se/#/pass/jungfrau_passes/)
 
 **少女峰地區健行路線參考**
 
@@ -58,8 +54,6 @@ date: 2017-11-10 02:12:00
 這一系列在火車上拍的真的都很誇張，只能屏息，只能說不出話來！
 
 ![](https://c1.staticflickr.com/5/4344/36302572193_7ee05c52b3_k.jpg)
-
-&nbsp;
 
 小蓮～～小蓮你告訴我你在哪個房子裡～～～～（馬景濤式叫喊）
 
@@ -152,13 +146,9 @@ date: 2017-11-10 02:12:00
 
 ![](https://c1.staticflickr.com/5/4435/36945039232_b92cb405c2_k.jpg)
 
-&nbsp;
-
 其中一隻感受到我們的接近特別跑來看我，跟牠努力交涉了一下，提出合照的要求
 
 ![](https://c1.staticflickr.com/5/4429/36945038202_2a5632cb3b_k.jpg)
-
-&nbsp;
 
 牠說：雖然你長得很奇怪，但我們可以拍張照
 
@@ -230,8 +220,6 @@ date: 2017-11-10 02:12:00
 
 ![](https://c1.staticflickr.com/5/4555/26511004609_01db971e94_k.jpg)
 
-&nbsp;
-
 天氣真的很好，一定要戴太陽眼鏡！
 
 眼前這條就是阿萊奇冰河，
@@ -240,25 +228,17 @@ date: 2017-11-10 02:12:00
 
 ![](https://c1.staticflickr.com/5/4335/36926818406_4aca36aba5_k.jpg)
 
-&nbsp;
-
 號稱歐洲最高峰就是這個山頭本人
 
 ![](https://c1.staticflickr.com/5/4416/36926827176_a1052bb5df_k.jpg)
-
-&nbsp;
 
 觀景台上用的地基是這個，可能我的問題有點智障，但身為非土木/建築專家，真的很難想像這東西如何抵抗地殼變動之類的或是融雪
 
 ![](https://c1.staticflickr.com/5/4399/36926828696_62e4677f27_k.jpg)
 
-&nbsp;
-
 最高峰也可以是人類的遊樂場，今年中國歌手鄧紫棋還來到這裡開演唱會
 
 ![](https://c1.staticflickr.com/5/4372/36926811866_a1f8211546_k.jpg)
-
-&nbsp;
 
 我覺得這些雪的質地好漂亮
 
@@ -268,19 +248,13 @@ date: 2017-11-10 02:12:00
 
 ![](https://c1.staticflickr.com/5/4378/36973722531_79b82f13ce_k.jpg)
 
-&nbsp;
-
 右邊這座一直讓我想到HERSHEY'S巧克力（藍色包裝）的白巧克力
 
 ![](https://c1.staticflickr.com/5/4362/36944928672_93b70275e2_k.jpg)
 
-&nbsp;
-
 仔細看雪真的好美，我忍不住吃了幾口，看小丸子長大的人一定要做的事！好吃！
 
 ![](https://c1.staticflickr.com/5/4533/38286598961_44ca2a18b1_k.jpg)
-
-&nbsp;
 
 因為已在最頂端，所以360度都一覽無遺，好多山頭都看得一清二楚，其中看到一個遠遠的小湖，雖然拉近了讓解析度模糊，還是不難感受出那小湖的可愛，還有遠方的兩個大聚落，其實好像就是我們等會兒會用雙腿走到的聚落，很難想像吧？！我居然能用走的走到誒！！！好吧，也不是全程走完啦哈哈哈哈
 
@@ -570,10 +544,6 @@ Ballenberg動物農場內也展示從古到今，南北東西瑞士不同的建�
 
 ![](https://c1.staticflickr.com/5/4355/36926714106_11810c4636_k.jpg)
 
-&nbsp;
-
-&nbsp;
-
 第五天，下山，我們只在伯恩待了一下下，但我覺得他是瑞士最漂亮的大城市，被綠色的河環繞著，感覺很受保護！風景遠勝蘇黎世跟日內瓦，對我來說。
 
 ![](https://c1.staticflickr.com/5/4371/36718572490_5b4f8e0b41_k.jpg)
@@ -592,8 +562,6 @@ Ballenberg動物農場內也展示從古到今，南北東西瑞士不同的建�
 
 ![](https://c1.staticflickr.com/5/4560/24415835218_4071c4b7c1_k.jpg)
 
-&nbsp;
-
 這是在超商買到意外超好吃的麥片
 
 ![IMG_1855](https://crazynatalie.files.wordpress.com/2017/11/img_1855.jpg)
@@ -606,13 +574,9 @@ Ballenberg動物農場內也展示從古到今，南北東西瑞士不同的建�
 
 ![IMG_1856](https://crazynatalie.files.wordpress.com/2017/11/img_1856.jpg)
 
-&nbsp;
-
 雖然是無聊的城市，卻還是享有身在歐洲的福利....那就是音樂會好多，大咖DJ、音樂人也好多，真心羨慕
 
 ![IMG_1857](https://crazynatalie.files.wordpress.com/2017/11/img_1857.jpg)
-
-&nbsp;
 
 蘇黎世另一個麻煩就是食物無敵貴，我們都已經找了平價餐廳，一進去最基本的炒飯居然要台幣約六百塊，當場天打雷劈！倒退三步.....這裏推薦兩家CP值較高的餐廳。
 

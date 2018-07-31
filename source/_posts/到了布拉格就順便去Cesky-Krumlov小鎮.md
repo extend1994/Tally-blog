@@ -14,15 +14,13 @@ tags:
 date: 2017-10-27 02:32:00
 ---
 
-&nbsp;
-
 ![DSC01247](https://crazynatalie.files.wordpress.com/2017/10/dsc01247.jpg)
 
-*   從維也納到CK: 選擇CK shuttle (800czk/人) Bean Shuttle便宜很多但要早點訂
-*   住宿：[Penzion Weber ](https://www.booking.com/hotel/cz/penzion-weber.zh-cn.html?aid=304142;label=gen173nr-1FCAEoggJCAlhYSDNiBW5vcmVmaOcBiAEBmAEwuAEHyAEM2AEB6AEB-AELkgIBeagCAw;sid=72e21d187a41a075506a00b055a074d6)<span class="mb-hotel-name__local">：因有個人衛浴所以有點像旅館，很高級又很便宜，旁邊就是超市也有廚房，但是離主要景點走路約10分鐘內，須爬石子路坡，有大型行李者不建議，除非來回都坐Shuttle</span>
-*   注意事項：自由行務必跟住宿地確認Check-in時間，因為你到的時候極可能沒有人在
-*   換錢處：遊客中心/ N.95
-*   小建議：夏天去景色比較漂亮
+* 從維也納到 CK：選擇 CK shuttle（800czk/人）Bean Shuttle 便宜很多但要早點訂
+* 住宿：[Penzion Weber](https://www.booking.com/hotel/cz/penzion-weber.zh-cn.html?aid=304142;label=gen173nr-1FCAEoggJCAlhYSDNiBW5vcmVmaOcBiAEBmAEwuAEHyAEM2AEB6AEB-AELkgIBeagCAw;sid=72e21d187a41a075506a00b055a074d6)：因有個人衛浴所以有點像旅館，很高級又很便宜，旁邊就是超市也有廚房，但是離主要景點走路約10分鐘內，須爬石子路坡，有大型行李者不建議，除非來回都坐Shuttle
+* 注意事項：自由行務必跟住宿地確認Check-in時間，因為你到的時候極可能沒有人在
+* 換錢處：遊客中心/ N.95
+* 小建議：夏天去景色比較漂亮
 <!--more-->
 
 在溫泉小鎮與CK小鎮之間我選擇了CK，因為溫泉小鎮看起來太像一般的歐洲小鎮，而反正原本就已經要前往童話感的布拉格，另一處就想選擇跟天然美景比較接近的CK。雖然Shuttle bus 真的是比一般巴士貴上許多，但我完全不後悔這個決定，一開始只是想說反正前一趟布達佩斯-維也納已經買到很便宜的火車票，這趟應該可以稍微奢侈點，另外不想再拖著行李從遙遠的巴士站到住宿地，Shuttle bus （5-7人的休旅車）可以送到門口，一開始只是貪圖這兩點的，但後來路上絕美的風景還有遇到超級聊得來的司機Veronica，如果是坐巴士絕不可能把風景看得如此清楚，如果是坐巴士我絕不可能有機會就坐在司機旁邊跟她聊天，還為我介紹一路的風景！
@@ -47,17 +45,17 @@ XD
 
 這次途經奧地利的農村讓我印象很深刻，真的好漂亮好漂亮，下次有機會我會想要自駕到這些地方，另外我有註記的兩個漂亮的地方分別是：Zwettl 以及Weitra ，就是用google定位把它標示起來的
 
-[caption id="attachment_2412" align="alignnone" width="3264"]![IMG_1218](https://crazynatalie.files.wordpress.com/2017/10/img_1218.jpg) 前往CK時前座的視角[/caption]
+![IMG_1218](https://crazynatalie.files.wordpress.com/2017/10/img_1218.jpg) 前往CK時前座的視角
 
-[caption id="attachment_2407" align="alignnone" width="3264"]![IMG_1237](https://crazynatalie.files.wordpress.com/2017/10/img_1237.jpg) 因為Veronica真的開好快，我每次都要拍很快才行哈哈，總之路上有很多這種在一片綠草皮中轟立的可愛大房子，好想要玩誰來我家的遊戲，去這些農村家裡住一晚[/caption]
+![IMG_1237](https://crazynatalie.files.wordpress.com/2017/10/img_1237.jpg) 因為Veronica真的開好快，我每次都要拍很快才行哈哈，總之路上有很多這種在一片綠草皮中轟立的可愛大房子，好想要玩誰來我家的遊戲，去這些農村家裡住一晚
 
-[caption id="attachment_2410" align="alignnone" width="3264"]![IMG_1246](https://crazynatalie.files.wordpress.com/2017/10/img_1246.jpg) 照片拍得不是很好，但親眼看到這些經過的小房子時，真的是比照片漂亮好幾十倍，怎麼會有這麼漂亮的小鎮啊！[/caption]
+![IMG_1246](https://crazynatalie.files.wordpress.com/2017/10/img_1246.jpg) 照片拍得不是很好，但親眼看到這些經過的小房子時，真的是比照片漂亮好幾十倍，怎麼會有這麼漂亮的小鎮啊！
 
-[caption id="attachment_2408" align="alignnone" width="3264"]![IMG_1231](https://crazynatalie.files.wordpress.com/2017/10/img_1231.jpg) 這也是路途經過的小城堡[/caption]
+![IMG_1231](https://crazynatalie.files.wordpress.com/2017/10/img_1231.jpg) 這也是路途經過的小城堡
 
 Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說餐廳真的都很早就關了，我們晚間八點到已經幾乎找不到任何餐廳可以吃，也沒有任何雜貨店或是超商開著，只有少數幾間酒吧開著，到達時下著微微的雨，打在鄉間的小路上，我是真的想到這首歌XDD 窗戶外安靜的異常，雖說路上幾乎無人，但我們並不覺得有一絲不安全感，倒是真的感覺回到雲林鄉下，所有鄉村居民都已經休息，等待雞鳴時要起來農作的氛圍，我覺得這裡很適合放鬆，但不宜待太久，兩天已經算多了，因為這裡真的非常非常小，美雖美但有種被這城鎮困住的感覺，比較沒有大海的寬廣。有的人喜歡山，有的人偏愛海，這裡適合愛山的那一派。
 
-[caption id="attachment_2406" align="alignnone" width="3264"]![IMG_1257](https://crazynatalie.files.wordpress.com/2017/10/img_1257.jpg) 第一晚到時天氣真的很差[/caption]
+![IMG_1257](https://crazynatalie.files.wordpress.com/2017/10/img_1257.jpg) 第一晚到時天氣真的很差
 
 另外我也覺得小鎮居民的長相有點神奇，男性普遍身高較矮而且窄肩，不笑的時候臉部表情常給我帶有獸性的感覺，讓我一直會想到歐洲一些狼人的古老傳說哈哈哈哈，不過絕不是雅各那種有很多人覺得帥的狼人；尤其是因為第一天晚上找到的那間酒吧，主人跟客人之間都散發出一股奇怪而糜爛的氛圍，可能是我第一次碰到那樣的氣氛吧，我們進去時他們就用怪異的眼神看著我們，不是不友善的眼神，而是真的怪異的眼神，然後又完全不跟我們說話，跟他們說話時又有點不耐煩，總覺得很像一些驚悚片裡面會出現的餐廳，何況還有幾個好像是常客的人長得非常兇猛跟奇特，又一直狂喝酒還有一直出去大口抽煙，好吧我還有聯想到哈利波特裡面的一些情節.....還好最後幫我們算錢的人有給我們溫暖微笑，不然我真的會覺得是不是碰到什麼髒東西了哈哈哈，說是這樣說，當下我們也沒有覺得害怕啦。
 
@@ -66,8 +64,6 @@ Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說�
 第一天晚上吃飽飯在外面散步時就遇到了超級親人的貓咪，一直要跳到人家身上討抱，我們原本以為是野貓還有點害怕，後來發現這邊即使是有人飼養的貓，也會讓牠們在外面亂跑，難怪這麼親人啊！
 
 ![](https://c1.staticflickr.com/5/4343/37338619926_3a1c854440_k.jpg)
-
-&nbsp;
 
 早安！從我們住的地方眺望城中心～因為前一天下了雨，隔天天氣真的好棒
 
@@ -85,17 +81,17 @@ Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說�
 
 ![](https://c1.staticflickr.com/5/4384/37338828736_023ad7e80c_k.jpg)
 
-&nbsp;
+我很喜歡拍攝的一系列街道小巷照，第一張很像法國的安錫
 
-我很喜歡拍攝的一系列街道小巷照，第一張很像法國的安錫![IMG_1279](https://crazynatalie.files.wordpress.com/2017/10/img_1279.jpg)![IMG_1276](https://crazynatalie.files.wordpress.com/2017/10/img_1276.jpg)
+![IMG_1279](https://crazynatalie.files.wordpress.com/2017/10/img_1279.jpg)
+
+![IMG_1276](https://crazynatalie.files.wordpress.com/2017/10/img_1276.jpg)
 
 ![](https://c1.staticflickr.com/5/4375/37338827566_6aa566afa5_k.jpg)
 
 ![IMG_1291](https://crazynatalie.files.wordpress.com/2017/10/img_1291.jpg)
 
 ![IMG_1282](https://crazynatalie.files.wordpress.com/2017/10/img_1282.jpg)
-
-&nbsp;
 
 橋上遇到的大狗狗
 
@@ -115,37 +111,25 @@ Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說�
 
 ![](https://c1.staticflickr.com/5/4398/37338830136_799b36806c_k.jpg)
 
-&nbsp;
-
 為何這上面的雲很像Windows XP的桌面背景圖 哈哈哈
 
 ![](https://c1.staticflickr.com/5/4347/37386236541_fff5295146_k.jpg)
-
-&nbsp;
 
 另一側是綠油油的
 
 ![](https://c1.staticflickr.com/5/4404/37129387960_2e3bc2b8ee_k.jpg)
 
-&nbsp;
-
 從洞中窺伺自己想像是住在圓塔上的長髮公主～～
 
 ![](https://c1.staticflickr.com/5/4407/36716068953_6474855e44_k.jpg)
-
-&nbsp;
 
 遠方右側就是我說要付費上樓的圓塔
 
 ![](https://c1.staticflickr.com/5/4412/36716067413_83b7cc55b0_k.jpg)
 
-&nbsp;
-
 你怎麼會這麼可愛～～～但坦白說那整座城堡裡全都是香港和韓國遊客，真的90%都是，我又瞬間被亞洲風味包圍住，要想家都難XDD
 
 ![](https://c1.staticflickr.com/5/4364/37129357080_df30ec2e50_k.jpg)
-
-&nbsp;
 
 潺潺溪流都顯得好放鬆
 
@@ -157,15 +141,15 @@ Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說�
 
 ![](https://c1.staticflickr.com/5/4339/37129392090_3fa9015779_k.jpg)
 
-&nbsp;
-
 仔細看圓塔上磚塊的痕跡，也全是用畫的畫上去
 
 ![IMG_1297](https://crazynatalie.files.wordpress.com/2017/10/img_1297.jpg)
 
 下面這兩張也很明顯，全都是彩繪上去的，不過畫的也是很漂亮，這行為讓我想到，沒錢醫美的話，好好練習化妝技術也是可以騙騙人的是吧XD
 
-![IMG_1301](https://crazynatalie.files.wordpress.com/2017/10/img_1301.jpg)![IMG_1298](https://crazynatalie.files.wordpress.com/2017/10/img_1298.jpg)
+![IMG_1301](https://crazynatalie.files.wordpress.com/2017/10/img_1301.jpg)
+
+![IMG_1298](https://crazynatalie.files.wordpress.com/2017/10/img_1298.jpg)
 
 沒有參加tour不知道這位先生是誰，不過看起來應該很有那麼一回事所以拍了照片留念
 
@@ -175,7 +159,8 @@ Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說�
 
 ![](https://c1.staticflickr.com/5/4478/37129173830_1e1e44d6ed_k.jpg)
 
-![IMG_1292](https://crazynatalie.files.wordpress.com/2017/10/img_1292.jpg)![IMG_1293](https://crazynatalie.files.wordpress.com/2017/10/img_1293.jpg)
+![IMG_1292](https://crazynatalie.files.wordpress.com/2017/10/img_1292.jpg)
+![IMG_1293](https://crazynatalie.files.wordpress.com/2017/10/img_1293.jpg)
 
 看起來好吃的巧克力店
 
@@ -185,13 +170,9 @@ Cesky Krumlov真的是一個鄉下地方，我這麼說並無貶義，只是說�
 
 ![IMG_1340](https://crazynatalie.files.wordpress.com/2017/10/img_1340.jpg)
 
-### 
-
-### **捷克菜慎選還是很重要---餐廳分享**
+### 捷克菜慎選還是很重要---餐廳分享
 
 CK小鎮這邊的消費真的很便宜，雖然真的是以肉食為主的菜色，需要菜的人可能會吃不慣，但我覺得烤豬肉好像都還蠻好吃的，但是烤鴨我很不推薦。
-
-&nbsp;
 
 #### [Travel Hostel Restaurant](https://www.tripadvisor.com.tw/Restaurant_Review-g274688-d7713046-Reviews-Travel_Hostel_Restaurant-Cesky_Krumlov_South_Bohemian_Region_Bohemia.html)
 
@@ -240,6 +221,5 @@ CK小鎮這邊的消費真的很便宜，雖然真的是以肉食為主的菜色
 *   Visit the Egon Schiele Museum (famous Austrian painter who once lived in Cesky Krumlov)
 *   Relax in the beautiful castle garden
 *   Go horseback riding
-source:[ http://www.travelhostel.cz/en//6/](http://www.travelhostel.cz/en//6/)
 
-&nbsp;
+source:[ http://www.travelhostel.cz/en//6/](http://www.travelhostel.cz/en//6/)
