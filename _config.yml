@@ -13,7 +13,7 @@ timezone: Asia/Taipei
 
 # URL
 ## If your site is put in a subdirectory, set url as 'http://yoursite.com/child' and root as '/child/'
-url: http://yoursite.com
+url: https://crazynatalie.nctu.me
 root: /
 permalink: :year/:month/:day/:title/
 permalink_defaults:
@@ -43,7 +43,7 @@ highlight: # code block setting
   line_number: true
   auto_detect: false
   tab_replace:
-  
+
 # Home page setting
 # path: Root path for your blogs index page. (default = '')
 # per_page: Posts displayed per page. (0 = disable pagination)
@@ -52,7 +52,7 @@ index_generator:
   path: ''
   per_page: 10
   order_by: -date
-  
+
 # Category & Tag
 default_category: uncategorized
 category_map:
@@ -73,7 +73,7 @@ pagination_dir: page
 # Extensions
 ## Plugins: https://hexo.io/plugins/
 ## Themes: https://hexo.io/themes/
-## Deploy 
+## Deploy
 theme: hueman
 
 # Deployment
@@ -83,7 +83,13 @@ deploy:
 
 ## polarbear test
 archive_generator:
-    per_page: 10
-    yearly: false
-    monthly: false
-    daily: false
+  per_page: 10
+  yearly: true
+  monthly: true
+  daily: false
+
+# hexo-admin login infp
+#admin:
+#  username: tally
+#  password_hash: $2a$10$D8OqgqIMTHKZd31Xe1lm4uGpq5fyIuJNhU95fl1UZyDFbVt61d0wS
+#  secret: 9m&fnj3u<z
