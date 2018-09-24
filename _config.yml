@@ -81,12 +81,25 @@ theme: hueman
 deploy:
   type:
 
-## polarbear test
 archive_generator:
   per_page: 10
   yearly: true
   monthly: true
   daily: false
+  order_by: -date
+
+sitemap:
+  path: sitemap.xml
+
+feed:
+  type: atom
+  path: atom.xml
+  limit: 20
+  hub:
+  content:
+  content_limit: 140
+  content_limit_delim: ' '
+  order_by: -date
 
 # hexo-admin login infp
 #admin:
