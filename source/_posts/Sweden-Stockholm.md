@@ -16,7 +16,7 @@ tags:
   - 斯德哥爾摩
   - 旅遊
   - 交通
-date: 2017-09-07 03:23:00
+date: 2018-09-23 17:46:14
 ---
 ![](https://c2.staticflickr.com/2/1871/42571375330_2f669ee78e_b.jpg)
 斯德哥爾摩是我歐洲大陸的第一站，手持一張一萬五在北京轉機的單程機票，出發吧！魔女宅急便琪琪的城市！
@@ -305,7 +305,7 @@ MA-1 飛行外套+球鞋是很好判斷是不是瑞典人的一個指標，這�
 
 ![](https://c2.staticflickr.com/2/1854/42571352300_873352a991_b.jpg)
 
-## 值得一去的[北歐博物館](https://www.nordiskamuseet.se/en) 
+## 值得一去的[北歐博物館](https://www.nordiskamuseet.se/en)
 
 ![博物館門口，取自官方 IG](https://instagram.ftpe8-2.fna.fbcdn.net/vp/994154d3aee2a68e96fc6adfea68050e/5C167009/t51.2885-15/sh0.08/e35/s640x640/37508117_1659581107500684_2414082086357958656_n.jpg)
 
@@ -386,4 +386,4 @@ MA-1 飛行外套+球鞋是很好判斷是不是瑞典人的一個指標，這�
 * 來北歐可以不用帶現金，我一路刷到底，但是要記得向銀行詢問 Pin code
 * [這個網站](https://www.routesnorth.com/)很專業！適用所有北歐國家，可以看看你來的這時候有哪些「季節限定」的活動，還有哪些特別的景點，如果你也不喜歡千篇一律的旅遊活動，想要做一些特別的，更貼近當地人的，你會喜歡的！
 
-如果喜歡文章，也來追蹤我的IG [https://www.instagram.com/19894.8kg/](https://www.instagram.com/19894 .8kg/) 和 Facebook [Tally旅行中](https://www.facebook.com/Tally%E6%97%85%E8%A1%8C%E4%B8%AD-2128388864057226/) 吧！
+***如果喜歡我的文章，也來追蹤我的 [Instagram](https://www.instagram.com/19894.8kg/) 和 Facebook [Tally&her Belly : 媽媽說不考公務員就去當外景節目主持人](https://www.facebook.com/tallynherbelly) 吧！***
