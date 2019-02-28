@@ -16,9 +16,9 @@ tags:
   - 必玩
   - 必吃
   - 歐洲
-date: 2017-09-28 02:25:00
+date: 2019-02-28 11:40:00
 ---
-![](https://c1.staticflickr.com/5/4436/36555381893_fa6951773a_k.jpg)
+![](https://farm5.staticflickr.com/4839/32025670377_c71e19cd18_b.jpg)
 
 因為 Skpye 的盛名加上我對小國情有獨鍾，其實一直對塔林情有獨鍾，而且它名字又很特別！雖然走了歐洲一大圈後，發現它的城市規模實在是小到有微酸感，然而說句非常真心話，以台南人的魂魄發誓，波羅的海三小國的食物，尤其是塔林，真的是全歐洲最好吃、價格又公道！另外總結這次歐洲旅遊，我遇到最多友善的路人們，就是在塔林！
 <!--more-->
@@ -33,7 +33,7 @@ date: 2017-09-28 02:25:00
 
 ## 簡介
 
-![大約晚上十點的塔林天空](https://c1.staticflickr.com/5/4377/37195706242_5750938d35_k.jpg)
+![大約晚上十點的塔林天空](https://farm5.staticflickr.com/4854/46914620812_dd8d43b984_b.jpg)
 
 ***有想要在愛沙尼亞機場過夜的朋友請記得，絕對不要出關，出關後沒有位置讓你睡***，我跟妹妹太傻了跑出來，後來在電梯旁的軟椅子上睡了一夜，軟椅子有四個，如果不小心出來的話應該還是可以擋一擋吧！不會被趕～另外公車站旁的買票機很難買，我們跟一個洋妞都試了很久但都沒有成功，所以建議大家不要花費時間了，隨便一台巴士都是往市區的，愛沙尼亞英文很通，直接上車付現金就可以了，我們上車時有先跟司機講好，他說到站可以叫我們。
 
@@ -73,30 +73,30 @@ date: 2017-09-28 02:25:00
 
 我從塔林開始就很喜歡報名 Free city tour ，因為可以完全不用動腦，跟著走就可以看到許多景點和故事，還可以一耗就是三小時以上，小費也是你隨喜，只是需要英文能力；塔林的導遊讓我很震驚，我沒有看過如此風趣又有熱忱的導覽人員，原本以為歐洲的導遊水平都如此之高，後來才發現我在一開始就已經遇到最好的了，後來的除了葡萄牙的還算不錯外，都讓我覺得學究感太重又無趣。
 
-![想要記住導遊 Heli 熱血的樣子](https://c1.staticflickr.com/1/940/42033966650_828155b459.jpg)
+![想要記住導遊 Heli 熱血的樣子](https://farm8.staticflickr.com/7801/46914620692_b6b1e71e97_z.jpg)
 
 首先這裡是市政廳廣場我覺得最有看頭的前兩位，也是 Heli 推薦的古老藥房 Raeapteek，她說若是哈利波特迷一定會喜歡，因為裡面在賣「麒麟粉」，那內容物究竟是什麼我也不清楚....不過可以進去看一眼，花的時間很少，可以看到有很多神秘藥水跟小動物屍體標本，呼喊藥草學教授～～
 
-![古老藥房 Raeapteek（Town Hall Pharmacy）](https://c1.staticflickr.com/1/848/43842523091_c5f4b0f557.jpg)
+![古老藥房 Raeapteek（Town Hall Pharmacy）](https://farm8.staticflickr.com/7875/40002047463_fcdc6a0346_z.jpg)
 
 雖然塔林的舊城區真的很小，但我真的覺得它的建築與字體最可愛，絲毫不輸群眾認為的童話世界布拉格，它也最符合我們對「歐洲中世紀」的認知，加上很多商店的店員都身著中世紀衣服，其實真的最給我一種大型主題樂園的感覺，而且很真！我走在路上也常常聽到中世紀味道的琴聲，是非常幸福的步行體驗。
 
-![亞歷山大·涅夫斯基主教座堂 Aleksander Nevski katedraal](https://c1.staticflickr.com/5/4404/37368080175_dc739d97f1_k.jpg)
+![亞歷山大·涅夫斯基主教座堂 Aleksander Nevski katedraal](https://farm8.staticflickr.com/7925/46966545611_08f81fed80_b.jpg)
 
 塔林的教堂有點俄羅斯味，根據 Heli 的說法，舊城區內很多建築都被炸毀過，許多現在看到的建築都是原址重建的了。
 
-![愛沙尼亞戲劇學院外牆上的導演](https://c1.staticflickr.com/1/939/43794086122_a741b68bbc_b.jpg)
+![愛沙尼亞戲劇學院外牆上的導演](https://farm8.staticflickr.com/7907/32025670107_0d1f63fae2_b.jpg)
 
 這位在牆上的先生，是愛沙尼亞著名導演 Voldemar Panso
 
 ### 觀賞塔林市景著名景點：Kohtuotsa Viewing Platform
 
-![](https://c2.staticflickr.com/2/1837/43794085832_a80738597e_b.jpg)
+![](https://farm8.staticflickr.com/7903/46914620662_17beec78da_b.jpg)
 
 Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，韓國女生真的很會拍照，覺得她們好可愛
 
-![](https://c1.staticflickr.com/5/4433/37368052035_2bed97bc79_k.jpg)
-![從 Kohtuotsa Viewing Platform 瞭望的塔林，冬日將會是一片雪白屋頂](https://c1.staticflickr.com/5/4432/37368057395_2e56af62cf_b.jpg)
+![](https://farm5.staticflickr.com/4815/33091228788_9a5221549b_b.jpg)
+![從 Kohtuotsa Viewing Platform 瞭望的塔林，冬日將會是一片雪白屋頂](https://farm5.staticflickr.com/4885/46052752955_6a2e0e9a55_b.jpg)
 
 ## 塔林電視塔
 
@@ -106,7 +106,7 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 不過我來的時候天氣本就不好，嗚嗚嗚
 
-![](https://c1.staticflickr.com/5/4384/37225386081_f527da449e_k.jpg)
+![](https://farm8.staticflickr.com/7907/32025670087_f2e3a7ffdc_b.jpg)
 
 還好往路地方向看，還有一片綠撫慰著我，森林多果然是北歐系列國家的標準配備啊！
 
@@ -114,45 +114,45 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 （註：塔林後來被歸類為北歐，其中也經歷一番努力波折，有興趣的人可以自行 Google）
 
-![](https://c1.staticflickr.com/5/4362/37177768526_665c640d02_k.jpg)
+![](https://farm8.staticflickr.com/7841/46966545491_729f8741c0_b.jpg)
 
 這台機器很好玩，可以讓你看同一個景的春夏秋冬還有日出日落的照片
 
-![](https://c1.staticflickr.com/5/4360/37177768166_19def6b3ac_k.jpg)
+![](https://farm5.staticflickr.com/4809/32025670347_acd2e13c90_b.jpg)
 
 各制高點的標準配備就是要把各大城市的方向指出來，媽，我找到台北方向啦！
 
 那顆洞就是透明玻璃，讓你站在上面往下看時會怕怕的那種
 
-![](https://c1.staticflickr.com/5/4332/37225385641_3922417931_k.jpg)
+![](https://farm5.staticflickr.com/4832/46242157134_1186fe625d_b.jpg)
 
 另外付費的高空纜繩，有興趣的人可體驗
 
-![](https://c1.staticflickr.com/5/4438/36555391743_10ff83b70f_k.jpg)
+![](https://farm5.staticflickr.com/4914/46242157034_7dc6a35568_z.jpg)
 
 高空塔內展示著塔林傳統服飾
 
-![](https://c1.staticflickr.com/5/4421/36555395153_b784352eba_k.jpg)
-![抓到一名美女！](https://c1.staticflickr.com/5/4369/37225383031_3ce4bd570d_k.jpg)
+![](https://farm8.staticflickr.com/7805/46242157154_1ec5f0664c_b.jpg)
+![抓到一名美女！](https://farm8.staticflickr.com/7836/33091229178_86ee140e7e_b.jpg)
 
 ## Hellemann Tower and Town Wall
 
 [Hellemann Tower and Town Wall](https://www.visittallinn.ee/eng/visitor/see-do/sightseeing/pid-177029/hellemann-tower-and-town-wall)也是我在古城區最喜歡的點之一，因為我覺得從這裡拍建築物最美，還有一種特別寧靜的感覺
 
-![](https://c1.staticflickr.com/5/4349/36555390273_3edef2c309_k.jpg)
+![](https://farm5.staticflickr.com/4909/33091229058_a5c124f4a6_b.jpg)
 
 這個小天台是我發現的小風景，上面還有普通人家曬的衣服，多麽美好的日常！我想在那邊喝茶！
 
-![](https://c1.staticflickr.com/5/4349/37225382671_795b56a4d0_k.jpg)
-![](https://c1.staticflickr.com/5/4388/36555388433_87279d03db_k.jpg)
+![](https://farm8.staticflickr.com/7860/33091229168_74dbdb20fe_b.jpg)
+![](https://farm5.staticflickr.com/4837/46966545601_4149190617_b.jpg)
 
 不知為何我就是很喜歡黑色屋頂XD 可能因為在清冷的地方黑屋頂看來特別溫暖吧！
 
-![](https://c1.staticflickr.com/5/4333/37177761286_e7e9a53dcc_k.jpg)
+![](https://farm5.staticflickr.com/4840/46966545591_9cccf44830_b.jpg)
 
 從這裡可以看到真的城牆，想像一下以前的人每晚在這裡巡守
 
-![](https://c1.staticflickr.com/5/4341/37177760336_0ebc93b7bb_k.jpg)
+![](https://farm5.staticflickr.com/4810/46052752845_d613f94e01_b.jpg)
 
 聖奧拉夫教堂是城內最高的教堂，所以如果你跟我一樣是「全景搜集者」，推薦你到這裡來了～
 
@@ -160,19 +160,19 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 以下就是從老城內最高點看下去的風景
 
-![](https://c1.staticflickr.com/5/4422/37195713792_28f5e13c65_k.jpg)
+![](https://farm8.staticflickr.com/7839/46914620682_2cb011c8fd_b.jpg)
 
 雖然一直看的是差不多的東西，但好像沒有膩的感覺捏哈哈哈我是生病了嗎
 
-![](https://c1.staticflickr.com/5/4436/36555381893_fa6951773a_k.jpg)
+![](https://farm5.staticflickr.com/4839/32025670377_c71e19cd18_b.jpg)
 
 遠方的船就是開到芬蘭的船吧（？
 
-![](https://c1.staticflickr.com/5/4410/37368060475_f2e2c66965_k.jpg)
+![](https://farm5.staticflickr.com/4889/40002047733_dde1413b1f_b.jpg)
 
 位於海邊的別墅區顏色很特別，莫名地吸引了我
 
-![](https://c1.staticflickr.com/5/4343/37195712972_b557ba094e_k.jpg)
+![](https://farm5.staticflickr.com/4829/32025670357_22a93fe21c_b.jpg)
 
 ## 塔林夕陽
 
@@ -180,24 +180,24 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 我們來看夕陽的地方位於 **Patkuli**，在白天也是另一個觀景平台
 
-![](https://c1.staticflickr.com/5/4416/37177779146_4041a2ef50_k.jpg)
+![](https://farm8.staticflickr.com/7833/46966545451_e023290e2a_b.jpg)
 
 夕陽真的蠻美的，但個人主觀認為還不到懾人心魄，卻有種小巧溫馨之感，不過風很大喔，即使已經六月還是凍地皮皮ㄘㄨㄚˋ。
 
-![](https://c1.staticflickr.com/5/4408/37368076615_6a073bd7ab_b.jpg)
+![](https://farm8.staticflickr.com/7910/33091228698_353f05b916_b.jpg)
 
 而且我不管到哪裡都會不小心拍到好閨蜜/好男友/好老公在幫忙拍美照，有的真的是整個人趴在地上幫拍，朋友真是很感人的存在啊啊啊啊
 
-![](https://c1.staticflickr.com/5/4381/37368055285_9deed5b89a_k.jpg)
+![](https://farm8.staticflickr.com/7859/40002047713_f20b2b4907_z.jpg)
 
 ## 塔林的年輕人穿著
 
 愛沙尼亞的年輕人穿著已經跟瑞典挪威很不一樣，通常瑞典人不會穿著這麼鮮豔的顏色，尤其是鞋子。
 
-![](https://farm2.staticflickr.com/1791/42034228460_368f189dbc_z_d.jpg)
-![](https://farm2.staticflickr.com/1817/42034227570_4f7c576c19_z_d.jpg)
-![](https://farm1.staticflickr.com/929/42034225400_96c17d669c_z_d.jpg)
-![](https://farm2.staticflickr.com/1835/42034225930_7b5f442166_z_d.jpg)
+![](https://farm8.staticflickr.com/7855/46242156804_4ac9bb0006_z.jpg)
+![](https://farm5.staticflickr.com/4884/32025670307_6a41dc13db_z.jpg)
+![](https://farm5.staticflickr.com/4906/46242156834_a8c3f30820_z.jpg)
+![](https://farm5.staticflickr.com/4906/40002047523_32b971b9db.jpg)
 
 ## 塔林的蘇菲婆婆們
 
@@ -205,75 +205,75 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 他們每套衣服感覺都是宮崎駿電影中出現過的，我覺得塔林的老人是世界上最可愛的老人！  
 另外，他們長相也很特別，不像西歐或南歐人，因為我從來沒有看過那麼高聳又大的鼻子，我查了斯拉夫人的長相，似乎也不是那樣...總之就欣賞欣賞！
 
-![](https://c2.staticflickr.com/2/1811/42034225250_2fd9309b23_c.jpg)
+![](https://farm8.staticflickr.com/7828/46319826675_656bcaaa91_z.jpg)
 
 真的超像卡通走出來美女阿姨賣的是濃濃冬天感的衣服，我來幫她宣傳
 
-![](https://c2.staticflickr.com/2/1798/42034226270_59d867bd2b_z.jpg)
-![](https://farm2.staticflickr.com/1840/42034225640_024abfd482_z_d.jpg)
-![](https://farm2.staticflickr.com/1791/42034227800_cae1940b9c_z_d.jpg)
+![](https://farm8.staticflickr.com/7916/46966545731_0c4cb528bc_z.jpg)
+![](https://farm5.staticflickr.com/4872/46242156954_6f8dace5bc_z.jpg)
+![](https://farm8.staticflickr.com/7851/46914620722_0deb52c4e5_z.jpg)
 
 原本這裡我是想拍奶奶賣的花好美，結果無意間拍到他們好朋友/姐妹之間在互相擁抱，能目睹這畫面真的好棒喔！我在想他們是不是特別喜歡擁抱，因為我一直看到女性跟女性之間互相擁抱的畫面，連在旅遊中心他們換班時也擁抱了呢！
 
-![](https://farm2.staticflickr.com/1835/42034226850_c2a71181d7_z_d.jpg)
+![](https://farm5.staticflickr.com/4816/46242157204_c71e19cd18_z.jpg)
 
 後來忍不住幫兩位蘇菲婆婆拍了照，希望我老的時候也能跟好朋友這樣一直玩下去
 
-![](https://farm1.staticflickr.com/929/42034225710_109c6085ac_z_d.jpg)
+![](https://farm8.staticflickr.com/7822/46242157004_a32d4600e8_z.jpg)
 
 我相機一拿起來還沒講話老伯伯就自動對我微笑了，我說的友善就是這意思
 
-![](https://farm2.staticflickr.com/1772/42034227300_34c50d5650_z_d.jpg)
+![](https://farm5.staticflickr.com/4857/46914620702_7f64434ff1_z.jpg)
 
 ## 隨便走走拍照系列
 
-![](https://c1.staticflickr.com/5/4335/37225388921_452340ba11_k.jpg)
+![](https://farm8.staticflickr.com/7845/40002047613_1bd5d278e2_b.jpg)
 
 我覺得大家可以去逛逛火車站旁，城門西側的超大型菜市場，是真的傳統菜市場喔！喜歡感受當地民生狀況的一定要去～
 
-![](https://c1.staticflickr.com/5/4376/37177774256_e5ced55af4_k.jpg)
+![](https://farm8.staticflickr.com/7868/46242156864_4614f3dfbf_b.jpg)
 
 傳統菜市場為何能如此乾淨？
 
-![](https://c1.staticflickr.com/5/4390/37177776006_4bb1d8fff3_k.jpg)
+![](https://farm5.staticflickr.com/4900/46242156964_c61ca364c3_b.jpg)
 
 塔林的傍晚也非常美，因為淒冷的氣溫加上黃光與稀少的人，走路真的是一種享受！我現在看到這張照片靈魂彷彿可以順間回到那裡去
 
-![](https://c1.staticflickr.com/5/4347/37368076375_784fa2cd70_k.jpg)
+![](https://farm8.staticflickr.com/7815/46052752785_c71e19cd18_b.jpg)
 
 在 viru gate 附近遇到這個很像是景觀餐廳的地方，我說這裡很像一個大型主題樂園真的是有原因的，不覺得過了這個門會有火山歷險之類的遊樂設施在等你嗎？或是什麼法老王之類的
 
-![](https://c1.staticflickr.com/5/4409/37177771916_2780fc7b24_k.jpg)
+![](https://farm5.staticflickr.com/4915/46242157054_ce69a09b82_b.jpg)
 
 偶然拍到的 101 忠狗小犬，真的超超超超超級可愛的啦
 
-![](https://farm5.staticflickr.com/4365/37177771356_7fc9d4154f_z_d.jpg)
+![](https://farm8.staticflickr.com/7875/40002047633_43334f77b9_z.jpg)
 
 乍看之下很像台灣一些大學的英文縮寫，差點驚呆我以為有分校XD
 
-![有卡拉 ok！而且還不少XD](https://farm1.staticflickr.com/851/43843710361_a9373a386a_z_d.jpg)
+![有卡拉 ok！而且還不少XD](https://farm8.staticflickr.com/7846/33091228748_bd1a1d6fb4_b.jpg)
 
-![](https://c1.staticflickr.com/5/4440/37177770596_aafac98a30_k.jpg)
+![](https://farm8.staticflickr.com/7888/46966545431_400cb1151e_b.jpg)
 
 我說他們城內的建築招牌都很可愛就是因為這些，是不是真的很叫人瘋狂啊！！
 
-![](https://c1.staticflickr.com/5/4428/37177759676_62372142eb_k.jpg)
+![](https://farm8.staticflickr.com/7916/46242156934_6e883a60b8_b.jpg)
 
-![傳說中保存最好的中世紀建築就是在塔林！](https://farm1.staticflickr.com/932/43795204932_3119a485d8_z_d.jpg)
+![傳說中保存最好的中世紀建築就是在塔林！](https://farm5.staticflickr.com/4828/32025670067_64bacd7b6f_z.jpg)
 
 乍看之下，我還以為上面的符號是滿文，因為紫禁城內也很多那種符號，後來才發現是三隻獅子啦，他們類似市徽的東西，就是瑞典跟德國瑞士都有的那種聯邦符號。
 
-![](https://farm1.staticflickr.com/928/42940179055_783db62455_z_d.jpg)
+![](https://farm8.staticflickr.com/7856/46914620622_baeec55a30_z.jpg)
 
 這個店內小童（假的娃娃）居然被鐵鍊栓住，覺得真可憐，一生跑不出去的概念XDD
 
-![](https://farm2.staticflickr.com/1816/42940178675_ef794a08e3_z_d.jpg)
+![](https://farm5.staticflickr.com/4906/46242156834_a8c3f30820.jpg)
 
 發現這裡的嬰兒都會戴這種頭巾，不知道是出於什麼樣的原因
 
-![另一個漂亮的建築，我喜歡那座燈！](https://farm1.staticflickr.com/861/43843711001_892e411a8f_z_d.jpg)
+![另一個漂亮的建築，我喜歡那座燈！](https://farm8.staticflickr.com/7851/46052752735_549227c0a8_z.jpg)
 
-![](https://farm1.staticflickr.com/855/42940179905_d8898881fd_z_d.jpg)
+![](https://farm8.staticflickr.com/7813/46242157074_bf6b5d20cf_b.jpg)
 
 我看到城內很多做木工的都是年輕人，偶爾會看到厲害的體格 >\\<
 
@@ -281,12 +281,12 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 原本我是要拍攝這支怪鳥，興趣搜集各種神秘生物
 
-![](https://c1.staticflickr.com/5/4377/36555408753_a6e757366b_k.jpg)
+![](https://farm5.staticflickr.com/4893/40002047503_7efe9a9b88_b.jpg)
 
 卻遇到這位大叔很開心在跟我比耶，吼～人家又不是要拍你！XDDD
 
-![](https://farm2.staticflickr.com/1837/42940556525_175bc4868f_z_d.jpg)
-![再來一間可愛的餐廳](https://farm2.staticflickr.com/1777/43844043891_52b7faf8b9_z_d.jpg)
+![](https://farm8.staticflickr.com/7851/46052752655_61ca7b7295_z.jpg)
+![再來一間可愛的餐廳](https://farm8.staticflickr.com/7895/46966545631_2cb011c8fd_z.jpg)
 
 雖然 Heli 說愛沙尼亞人不相信任何人，但我卻感受不到任何一點他們對陌生人的惡意，像前面那張照片的大叔一樣，很多街上的人跟你一對上眼會主動對你微笑，發自真心的；在前往電視台的公車上，我並未顯示出慌亂的神色就有人主動告知我下車地點快要到了（猜測應該是因為那個路線只有那個景點吧），那種善意的笑容和眼神我是永遠不會忘記的，在歐洲他處我反而沒有這種感覺了，我想這就是一種緣份吧！
 
@@ -302,15 +302,15 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 另外他的[菜單](http://www.fhoone.ee/en/main-menu/)貌似經常變換，不一定能吃到一模一樣的菜色。
 
-![Seafood pasta with prawns,mussels and creamy white wine sauce](https://c1.staticflickr.com/5/4409/37225390511_0765c5e2de_k.jpg)
+![Seafood pasta with prawns,mussels and creamy white wine sauce](https://farm5.staticflickr.com/4888/40002047603_72f054d8d1_b.jpg)
 
 這個看起來超普通的麵，現在看起來好像一盤 50 的炒米粉（其實是美味起司），居然我覺得最美味，蝦子實在太新鮮，是隔壁開蝦場嗎？
 
-![Chicken and mushroom stew with lentils, cheese and backed cherry tomatoes in creamy sauce](https://c1.staticflickr.com/5/4441/37177775206_5e6c644ca2_k.jpg)
+![Chicken and mushroom stew with lentils, cheese and backed cherry tomatoes in creamy sauce](https://farm5.staticflickr.com/4893/33091228978_3dc8a3b927_b.jpg)
 
 我這個人是有比較浮誇沒錯，但真心覺得這好像是我吃過最清爽不膩又回味無窮的焗烤
 
-![Slow cooked pork tenderloin with apple puree, baked bell pepper, warm pearl couscous salad and yoghurt sauce](https://c1.staticflickr.com/5/4345/37225389901_b75ca67e3c_k.jpg)
+![Slow cooked pork tenderloin with apple puree, baked bell pepper, warm pearl couscous salad and yoghurt sauce](https://farm5.staticflickr.com/4837/33091228728_dde9f6e5c6_b.jpg)
 
 帶點地中海風味的一道清爽菜餚，把豬弄烹調得像牛肉一般，加上非洲小米～～好好好吃喔
 
@@ -318,23 +318,23 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 這間價位稍微高一點點，混合西式、地中海與中東料理，我個人覺得最為驚豔的就是中東料理跟甜點。
 
-[![Crispy duck breast, fennel puree and blueberry-blackberry sauce](https://c1.staticflickr.com/5/4426/37368056145_60681c2ddd_k.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2641327)
+[![Crispy duck breast, fennel puree and blueberry-blackberry sauce](https://farm8.staticflickr.com/7842/33091229018_b1bed5d158_b.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2641327)
 
 一開始還沒有想要做紀錄，一直吃到後來才覺得好吃哈哈哈留下這張
 
-[![Apricot-apple toffee with vanilla sauce and almond crumble](https://c1.staticflickr.com/5/4438/37195705652_f004ac2b75_k.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2641328)
+[![Apricot-apple toffee with vanilla sauce and almond crumble](https://farm5.staticflickr.com/4887/46966545921_d909100cbe_z.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2641328)
 
-[![Crunchy Apple pie with vanilla dressing](https://farm2.staticflickr.com/1812/42940555415_e86e24dcac_z_d.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2410364)
+[![Crunchy Apple pie with vanilla dressing](https://farm5.staticflickr.com/4896/46966545641_0462cd5bee_b.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2410364)
 
 我知道這個看起來非常普通，但是異常好吃，好像是這整餐的亮點也不為過！
 
-[![Middle East (V) Stewed black lentils with lamb’s lettuce and pumpkin-apple salsa](https://c2.staticflickr.com/2/1797/43844043401_6747850b33_b.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2607474)
+[![Middle East (V) Stewed black lentils with lamb’s lettuce and pumpkin-apple salsa](https://farm8.staticflickr.com/7825/46914620522_81fea1f848_b.jpg)](https://m.menutabapp.com/restaurants/444109475756154/items/2607474)
 
 他們菜名就直接用地區來分，一個地區一道菜，是不是很酷啊！這道菜也是很清爽，帶點甜甜的味道，我覺得有水果入菜的菜色我都很愛，好吃！可惜量有一點點少，還好可以索取麵包，不過麵包真的是 R 店比較好吃。
 
 ### Caffeine
 
-![](https://farm2.staticflickr.com/1812/42940554525_1a63d30e1a_z_d.jpg)
+![](https://farm5.staticflickr.com/4811/33091228658_aaa806ffbe_z.jpg)
 
 塔林是真的沒有星巴克的地方，這間或許可以稱為塔林的星巴克！
 
@@ -344,15 +344,15 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 我是來這裡吃早餐的，我看有人評論這裡有著城內最好吃的黑麵包，我認為所言不假。我點了之後才知道，黑麵包居然不用錢！不過還是必須跟服務生點的樣子喔，那個奶油也是很了不起，配上大顆粒的鹽，我這一生最奇特的麵包口感體驗說在這裡也不為過呀！
 
-![好吃的黑麵包](https://c2.staticflickr.com/2/1773/43844042941_7e59da7d5d_b.jpg)
+![好吃的黑麵包](https://c2.staticflickr.com/8/7849/46052752905_e2bcc239e4_b.jpg)
 
 左邊的蛋糕其實是瑞典的特色甜點 Semla，但我看他名字雖相同但長得跟瑞典的太一樣所以就點來吃，美味！咖啡的部分就正常。
 
-![Semla & Coffee](https://c1.staticflickr.com/1/928/42940560185_f0797c9906_b.jpg)
+![Semla & Coffee](https://farm8.staticflickr.com/7905/46914620782_4929a509b5_b.jpg)
 
 另外這間店真的非常漂亮，連廁所也是！我在廁所還遇到一個英國阿姨跟我一樣在搶拍廁所美景。整間店非常的復古典雅，店裡音樂也很有格調，服務生同樣身著中世紀服裝；不過他們臉有一點臭，維持著一種冰冷距離，禮貌卻又有到位，有一種管家感，我是覺得蠻有趣的。
 
-![](https://c2.staticflickr.com/2/1835/43844046001_9ddba6bfe0_b.jpg)
+![](https://farm5.staticflickr.com/4889/40002047683_bd512eba75_b.jpg)
 
 ### III Draakon
 
@@ -366,22 +366,22 @@ Heli 帶我們來到著名拍照景點，也是一個可以看風景的地方，
 
 你來塔林沒吃這個我真的不讓你走喔XDD 我甚至來吃了第二次！
 
-![](https://c2.staticflickr.com/2/1797/43844044531_6352cea736_b.jpg)
+![](https://farm5.staticflickr.com/4875/46966545671_440be29954_b.jpg)
 
 整間店內都充滿濃濃中世紀風格，服務小姐扮演著重要的角色啊！看他們可愛的服裝，還有做生意時海派、窯湯時豪爽的樣子，好像歐洲版的龍門客棧，我們是旅行已久的過客，到此與天下英雄一齊大口喝酒的感覺！
 
-![](https://farm2.staticflickr.com/1837/42940553965_6a4dbda36d_z_d.jpg)
+![](https://farm5.staticflickr.com/4853/46966545681_c71e19cd18_z.jpg)
 
 > 店員大姐豪氣地跟我說：你想坐哪就坐哪不用等我帶位！沒位子的話你看哪個人看起來臉很 nice 就問他可不可以併桌！
 
-![](https://c1.staticflickr.com/1/936/43844045181_12d24bc399_b.jpg)
-![男孩攪動的桶裡的有免費拿取的醃漬酸黃瓜，只不過我真的覺得很難吃XD](https://farm1.staticflickr.com/929/43844045701_30f75f7078_z_d.jpg)
-![廁所也走中世紀風格](https://farm1.staticflickr.com/938/42940553345_37bfe06e9b_z_d.jpg)
+![](https://farm8.staticflickr.com/7865/46914620712_b952c16f32_b.jpg)
+![男孩攪動的桶裡的有免費拿取的醃漬酸黃瓜，只不過我真的覺得很難吃XD](https://farm8.staticflickr.com/7896/46914620762_6a659b8e29_z.jpg)
+![廁所也走中世紀風格](https://farm5.staticflickr.com/4833/46914620672_2cb011c8fd_z.jpg)
 
 ### Kompressor
 
-![餐廳內為美式風格](https://farm1.staticflickr.com/853/43795555772_cf46501dd6_z_d.jpg)
+![餐廳內為美式風格](https://farm8.staticflickr.com/7870/46242156884_f1b7c6cdeb_b.jpg)
 
 以鬆餅聞名，我單點了外帶的鮭魚和雞肉口味的鬆餅，一吃就很震驚，這不是美式蛋餅！這是台灣口味的蛋餅啊！！用太白粉做的那種～若有吃過台南阿公阿婆蛋餅的人你會知道，大概像是那種口味，超好吃！
 
-![Pancake with cold smoked salmon and smoked cheese](https://c2.staticflickr.com/2/1775/43795555442_e322620323_b.jpg)
+![Pancake with cold smoked salmon and smoked cheese](https://farm5.staticflickr.com/4906/33091229078_c904ea6985_b.jpg)
