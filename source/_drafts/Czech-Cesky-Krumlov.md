@@ -14,7 +14,7 @@ tags:
 date: 2017-10-27 02:32:00
 ---
 
-![DSC01247](https://c1.staticflickr.com/5/4347/37129359380_dd6ac8388a_b.jpg)
+![](https://farm5.staticflickr.com/4903/45882849015_b0b9901f0a_b.jpg)
 
 在溫泉小鎮 Karlovy Vary 與 Český Krumlov (CK) 小鎮之間我選擇了CK，因為溫泉小鎮看起來較像一般的歐洲小鎮，而我們已經計畫前往童話感的布拉格，另一處就想選擇跟天然美景比較接近的CK。
 <!--more-->
@@ -67,30 +67,30 @@ Veronica 是一個充滿生氣、講話時動作很多，很栩栩如生的大�
 
 這次途經奧地利的農村讓我印象很深刻，真的好漂亮好漂亮，下次有機會我會想要自駕到這些地方，另外我有使用 Google 定位註記的兩個漂亮的地方分別是：Zwettl 以及Weitra
 
-![前往 CK 時前座的視角](https://c2.staticflickr.com/2/1846/29316557307_e9e519e42d_b.jpg) 
+![前往 CK 時前座的視角](https://farm8.staticflickr.com/7820/31856218667_06acf62382_b.jpg)
 
 因為 Veronica 真的開好快，我每次都要拍很快才行XD，因為這樣照片拍得不是很好
 
-![總之路上有很多這種在一片綠草皮中轟立的可愛大房子](https://c2.staticflickr.com/2/1850/43534972564_24389214a5_b.jpg)
+![總之路上有很多這種在一片綠草皮中轟立的可愛大房子](https://farm8.staticflickr.com/7859/32922275058_0d4ccdc99f_b.jpg)
 
-![](https://c1.staticflickr.com/5/4504/37356208802_c7f3b1b336_b.jpg) 
+![](https://farm5.staticflickr.com/4834/31856218817_aab2e6f769_b.jpg)
 
 好想要玩誰來我家的遊戲，去這些農村家裡住一晚
 
 親眼看到這些經過的小房子時，真的是比照片漂亮好幾十倍，怎麼會有這麼漂亮的小鎮啊！
 
-![](https://c1.staticflickr.com/5/4466/37129594960_bea1ce6aa4_b.jpg)
+![](https://farm5.staticflickr.com/4838/31856218797_0dd363495e_b.jpg)
 
-![](https://c2.staticflickr.com/2/1873/42444846120_a205f2b028_b.jpg) 
+![](https://farm8.staticflickr.com/7864/39832631313_15e2544b98_b.jpg)
 
 
-![路途經過的小城堡](https://c2.staticflickr.com/2/1896/43346590225_dfb7b0e3bf_b.jpg) 
+![路途經過的小城堡](https://farm5.staticflickr.com/4890/46073015434_85c4923e65_b.jpg)
 
 ## CK 小鎮
 
 Český Krumlov 真的是一個鄉下地方，我這麼說**並無貶義，只是說餐廳真的都很早就關了**，我們晚間八點到已經找不到任何餐廳可以吃，也沒有任何雜貨店或是超商開著，只有少數幾間酒吧開著，**在我們用餐的酒吧中，我們還被催促點餐，不然廚房就要關閉了**。到達時下著微微的雨，打在鄉間的小路上，我是真的想到這首歌XDD 窗戶外安靜的異常，雖說路上幾乎無人，但我們並不覺得有一絲不安全感，倒是真的感覺回到台灣鄉下，所有鄉村居民都已經休息，等待雞鳴時要起來農作的氛圍，我覺得這裡很適合放鬆，但不宜待太久，兩天已經算多了，因為這裡真的非常非常小，美雖美但有種被這城鎮困住的感覺，比較沒有大海的寬廣。有的人喜歡山，有的人偏愛海，這裡適合愛山的那一派。
 
-![第一晚到時天氣真的很差](https://c2.staticflickr.com/2/1858/43346589875_d87c210393_b.jpg) 
+![第一晚到時天氣真的很差](https://farm5.staticflickr.com/4894/31856218757_b4f4d97a1e_b.jpg)
 
 另外我也覺得小鎮居民的長相有點神奇，男性普遍身高較矮而且窄肩，不笑的時候臉部表情常給我帶有獸性的感覺，讓我一直會想到歐洲一些狼人的古老傳說，不過不是雅各那種有很多人覺得帥的狼人；尤其是因為第一天晚上找到的那間酒吧，主人跟客人之間都散發出一股奇怪而糜爛的氛圍，可能是我第一次碰到那樣的氣氛吧，我們進去時他們就用怪異的眼神看著我們，不是不友善的眼神，而是真的怪異的眼神，然後又完全不跟我們說話，跟他們說話時又有點不耐煩，總覺得很像一些驚悚片裡面會出現的餐廳，何況還有幾個好像是常客的人長得非常兇猛跟奇特，又一直狂喝酒還有一直出去大口抽煙，好吧我還有聯想到哈利波特裡面的一些情節.....還好最後幫我們算錢的人有給我們溫暖微笑，不然我真的會覺得是不是碰到什麼髒東西了哈哈，說是這樣說，當下我們也沒有覺得害怕啦。
 
@@ -98,103 +98,103 @@ Veronica 是一個充滿生氣、講話時動作很多，很栩栩如生的大�
 
 第一天晚上吃飽飯在外面散步時遇到了超級親人的貓咪，一直要跳到人家身上討抱，我們原本以為是野貓還有點害怕，後來發現這邊即使是有人飼養的貓，也會讓牠們在外面亂跑，難怪這麼親人啊！
 
-![](https://farm2.staticflickr.com/1852/44203949402_28ed0d16c8_z_d.jpg)
+![](https://c2.staticflickr.com/8/7818/46745365112_dbcff98fba_z.jpg)
 
-![](https://farm2.staticflickr.com/1881/44203948792_7c00338e91_z_d.jpg)
+![](https://farm5.staticflickr.com/4824/39832631473_514d1867bc_z.jpg)
 
 早安！從我們住的地方眺望城中心～因為前一天下了雨，隔天天氣真的好棒
 
-![](https://c1.staticflickr.com/5/4398/37338830136_16a557aa28_b.jpg)
+![](https://farm8.staticflickr.com/7879/46797986511_26f9dcb4af_b.jpg)
 
 從住宿處附近眺望的另一側，有人在玩水上活動
 
-![](https://c1.staticflickr.com/5/4506/37338831506_3c263f3acc_b.jpg)
+![](https://farm5.staticflickr.com/4870/39832631293_14b18f1f7e_b.jpg)
 
 從住處走下來遇到的第一條橋很美，但第一晚上天氣不好時他長這樣
 
-![](https://c1.staticflickr.com/5/4514/36716105313_d9064358de_b.jpg)
+![](https://c1.staticflickr.com/5/4907/46745365032_95b7ddeb45_b.jpg)
 
 沒想到隔天天晴立刻換了一個面貌，醫美等級的脫胎換骨啊！所以大家說說這出外遊玩時，天氣有多重要，完全沒有修圖好不好XD
 
-![](https://c1.staticflickr.com/5/4384/37338828736_023ad7e80c_k.jpg)
+![](https://c1.staticflickr.com/5/4872/46073015324_6f111fb260_b.jpg)
 
 我很喜歡拍攝的一系列街道小巷照，第一張很像法國的安錫
 
-![](https://c2.staticflickr.com/2/1864/44203947942_33f95d6355_b.jpg)
+![](https://farm8.staticflickr.com/7891/32922275118_e37fc478de_b.jpg)
 
-![](https://c2.staticflickr.com/2/1853/30385760298_f959801814_b.jpg)
+![](https://c2.staticflickr.com/8/7922/32922275048_ac36185e50_b.jpg)
 
-![](https://c1.staticflickr.com/5/4375/37338827566_6aa566afa5_k.jpg)
+![](https://farm8.staticflickr.com/7830/46073015814_5e0d439a31_b.jpg)
 
-![](https://c2.staticflickr.com/2/1854/30385759388_362eca09d0_b.jpg)
+![](https://farm5.staticflickr.com/4882/45882849045_8482ca37e6_b.jpg)
 
-![](https://c2.staticflickr.com/2/1880/44203947162_c3b4255b01_b.jpg)
+![](https://farm8.staticflickr.com/7924/39832631413_33a9ab08b8_b.jpg)
 
 橋上遇到的大狗狗
 
-![](https://c1.staticflickr.com/5/4432/37338828446_35d179ecd0_k.jpg)
+![](https://farm5.staticflickr.com/4870/31856218927_0766c2f2a5_b.jpg)
 
 還有奇特可愛長相的狗狗
 
-![](https://farm2.staticflickr.com/1876/30385758018_07740e3a47_z_d.jpg)
+![](https://farm8.staticflickr.com/7907/46073015664_9b2158a69f_z.jpg)
 
 另外有很多人可能會想要花錢上圓塔去拍攝風景，但我跟你說！**State Castle 裡面就有絕佳的拍攝處了，也不需要花錢，一直往裡面走就會看到了**，不信？快看一下這些從城堡內不同角度拍攝的城鎮照片吧！
 
 只能用夭壽美來形容，雖然這些拍的都是一樣的地方，但還是拍到手停不下來
 
-![](https://c2.staticflickr.com/2/1852/30386058948_39afe73552_b.jpg)
+![](https://c2.staticflickr.com/8/7861/39832631453_aceacc3a18_b.jpg)
 
 故意後製把鮮明度調高，看！是不是很像畫出來的
 
-![](https://c2.staticflickr.com/2/1898/30386059858_5822af3ab6_b.jpg)
+![](https://c1.staticflickr.com/5/4813/39832631493_238116c980_b.jpg)
 
-![](https://c1.staticflickr.com/5/4423/37129389330_ae187c9219_k.jpg)
+![](https://farm5.staticflickr.com/4831/46745365232_cd86e489c3_b.jpg)
 
-![這上面的雲好像 Windows XP 的桌面背景圖哈哈](https://c1.staticflickr.com/5/4347/37386236541_fff5295146_k.jpg)
+![這上面的雲好像 Windows XP 的桌面背景圖哈哈](https://farm5.staticflickr.com/4887/39832631523_b7af4d50dd_b.jpg)
 
-![也有綠油油的一側](https://c1.staticflickr.com/5/4404/37129387960_2e3bc2b8ee_k.jpg)
+![也有綠油油的一側](https://c1.staticflickr.com/5/4861/46055473081_7f41d2d60b_b.jpg)
 
-![從洞中窺伺自己想像是住在圓塔上的長髮公主～～](https://c1.staticflickr.com/5/4407/36716068953_6474855e44_k.jpg)
+![從洞中窺伺自己想像是住在圓塔上的長髮公主～～](https://farm8.staticflickr.com/7878/46073015854_cfcd70ddcb_b.jpg)
 
 遠方右側就是我說要付費上樓的圓塔
 
-![](https://c1.staticflickr.com/5/4412/36716067413_83b7cc55b0_k.jpg)
+![](https://farm5.staticflickr.com/4846/46073015994_9679948ca7_b.jpg)
 
 怎麼會這麼可愛～～～那整座城堡裡全都是香港和韓國遊客，真的 90% 都是，我又瞬間被亞洲風味包圍住，要想家都難XDD
 
-![](https://c1.staticflickr.com/5/4364/37129357080_df30ec2e50_k.jpg)
+![](https://farm5.staticflickr.com/4883/46073015564_20191ea356_b.jpg)
 
 潺潺溪流都顯得好放鬆
 
-![](https://c1.staticflickr.com/5/4371/37129392790_1df2e1ad9a_k.jpg)
+![](https://farm5.staticflickr.com/4866/32922275208_cafafd5e6d_b.jpg)
 
 到城堡時會發現牆上許多裝飾，包含磚頭、窗子都是用彩繪的，據說是當時財政吃緊，但王室的人還是想要蝦趴一下，所以想要什麼就全都用畫的上去。
 
-![](https://c1.staticflickr.com/5/4339/37129392090_3fa9015779_k.jpg)
+![](https://farm5.staticflickr.com/4858/32922274958_5b86841311_b.jpg)
 
-![仔細看圓塔上磚塊的痕跡，也全是用畫的畫上去](https://farm2.staticflickr.com/1891/42446232540_c2d513b4a2_z_d.jpg)
+![仔細看圓塔上磚塊的痕跡，也全是用畫的畫上去](https://farm5.staticflickr.com/4880/45882849055_dda24ea52f_z.jpg)
 
 下面這兩張也很明顯，全都是彩繪上去的，不過畫的也是很漂亮，這行為讓我想到，沒錢醫美的話，好好練習化妝技術也是可以騙騙人的是吧XD
 
-![](https://farm2.staticflickr.com/1891/42446340440_e0f3a4d793_z_d.jpg)
+![](https://farm8.staticflickr.com/7883/39832631393_1722836793_z.jpg)
 
-![](https://c2.staticflickr.com/2/1871/42446232190_15b49002ef_b.jpg)
+![](https://farm8.staticflickr.com/7905/46073015504_0d39928373_b.jpg)
 
 沒有參加 tour 不知道這位先生是誰，不過看起來應該很有那麼一回事所以拍了照片留念
 
-![](https://farm2.staticflickr.com/1880/29317947197_5f249fa9c0_z_d.jpg)
+![](https://farm8.staticflickr.com/7855/45882849025_905746850c_z.jpg)
 
 這裡賣很多小陶瓷品
 
-![](https://c1.staticflickr.com/5/4478/37129173830_1e1e44d6ed_k.jpg)
+![](https://farm5.staticflickr.com/4894/45882849145_1d12d387bf_b.jpg)
 
-![](https://c2.staticflickr.com/2/1894/43347888265_1724686c0e_b.jpg)
+![](https://farm8.staticflickr.com/7816/46797986531_3e7eb43846_b.jpg)
 
-![](https://c2.staticflickr.com/2/1897/42446233040_f5924f177b_b.jpg)
+![](https://farm8.staticflickr.com/7913/45882849035_1d2850be68_b.jpg)
 
 快離開時天空又再度烏雲密佈，不過我知道它明天一早又會是美麗的晴天
 
-![](https://c2.staticflickr.com/2/1877/29317946587_169cf88bd7_b.jpg)
+![](https://farm8.staticflickr.com/7874/32922274868_b4f4d97a1e_b.jpg)
 
 ## 捷克菜慎選還是很重要 - 餐廳分享
 
@@ -204,27 +204,27 @@ CK 小鎮這邊的消費算是很便宜，雖然真的是以肉食為主的菜�
 
 這間雖然我一開始覺得氣氛很詭異，但是點的這兩道都真的還蠻好吃的，而且也便宜，推薦！
 
-![Pork roast in dark beer, cabbage ,potato dumplings (130 czk)](https://c2.staticflickr.com/2/1896/43536299324_3b4c6d46c6_b.jpg)
+![Pork roast in dark beer, cabbage ,potato dumplings (130 czk)](https://farm8.staticflickr.com/7894/46797986351_601f625870_b.jpg)
 
 130 捷克幣約新台幣 180 元，是不是真的很便宜！重點是有好吃啦，蠻喜歡他們的 Dumpling
 
-![Pork ribs with honey, bread  (155 czk)](https://c1.staticflickr.com/5/4493/37338621886_25723ea29c_b.jpg)
+![Pork ribs with honey, bread  (155 czk)](https://farm5.staticflickr.com/4863/32922275108_5da6818154_b.jpg)
 
 155 捷克幣約新台幣 215 元，這個很好吃耶！看起來很少但最後也是吃得很飽，先烤再煎的豬肋排味道恰如其分，配上甜甜的蜂蜜口感，味覺太重時就來一口應該是桔子醬口味的沙拉，實在非常涮嘴！
 
 ### [Na Louzi](http://www.nalouzi.com/)
 
-![](https://c2.staticflickr.com/2/1895/43536298544_3823801e3e_z.jpg)
+![](https://farm5.staticflickr.com/4808/46745365052_684bd5e2ba.jpg)
 
 很多網友推薦過，聽說是很多當地人的愛，連捷克總統都來吃過的一間所謂人氣網紅店，不過我想要給這次在這裏吃到的兩道菜都打上大大的叉叉，真的很平凡的味道，而且我個人除了沙拉外，比較喜歡吃熱的菜，但這兩道菜都不是熱食，讓我有被潑冷水的感覺....
 
 此外看之前大家的網誌發現他過去五年間通膨的狀況有點超出平常，個人不太喜歡恃寵而驕的店哈哈哈。不過我有看到一些其他食物的照片感覺還不錯，如果我有機會再吃一次或許會有不同觀感也說不定囉！
 
-![Roasted Duck, Potato dumplings, dumplings, white cabbage  (239 czk)](https://c1.staticflickr.com/5/4444/37129175910_e97d29e025_b.jpg)
+![Roasted Duck, Potato dumplings, dumplings, white cabbage (239 czk)](https://farm5.staticflickr.com/4887/46073015764_3ec2dc484d_b.jpg)
 
 這道很多人稱讚的 1/4 烤鴨料理，我覺得好無聊，就是醃製過的鴨肉，肉也不多，吃起來就像在罐頭裡彌封多時但是有調味的鴨肉（後來覺得其實有點像在法國吃到的油封鴨），整隻是冷的，當時天氣明明很熱，為何會一拿出來就冷掉呢？要我說的話，我覺得他大概不及 4 成的北平烤鴨好吃，最難吃的就是白色的酸菜....這整盤我覺得最好吃的就是有莫名香氣的 Dumpling。
 
-![Steak of Pork with Ham and Roquefort Cheese , Potatoes, Garnish (223 czk)](https://c1.staticflickr.com/5/4503/37386024621_8f1917f0f5_b.jpg)
+![Steak of Pork with Ham and Roquefort Cheese , Potatoes, Garnish (223 czk)](https://farm5.staticflickr.com/4814/46797986361_891bbe891b_b.jpg)
 
 這道是妹妹點的，因為是菜單裡面有肉較便宜的一道菜，但看到實體我也不知道要說什麼了，應該是去大學附設的自助餐聽打菜的時候會打到的東西，價位真的不太可愛。Garnish 的意思就是配菜，他想要配什麼就配什麼的意思ㄋㄟ。
 

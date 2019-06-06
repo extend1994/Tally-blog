@@ -6,14 +6,14 @@
 title: Tally & her belly
 subtitle:
 description:
-keywords:
+keywords: 遊記, 歐洲, Tally, belly
 author: Tally
 language: zh-TW
 timezone: Asia/Taipei
 
 # URL
 ## If your site is put in a subdirectory, set url as 'http://yoursite.com/child' and root as '/child/'
-url: https://crazynatalie.nctu.me
+url: https://tallybelly.nctu.me
 root: /
 permalink: :year/:month/:day/:title/
 permalink_defaults:
@@ -73,7 +73,6 @@ pagination_dir: page
 # Extensions
 ## Plugins: https://hexo.io/plugins/
 ## Themes: https://hexo.io/themes/
-## Deploy
 theme: hueman
 
 # Deployment
@@ -102,7 +101,8 @@ feed:
   order_by: -date
 
 # hexo-admin login infp
-#admin:
+admin:
 #  username: tally
 #  password_hash: $2a$10$D8OqgqIMTHKZd31Xe1lm4uGpq5fyIuJNhU95fl1UZyDFbVt61d0wS
 #  secret: 9m&fnj3u<z
+  deployCommand: './deploy.sh'

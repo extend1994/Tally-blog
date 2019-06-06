@@ -18,7 +18,7 @@ tags:
 date: 2017-10-21 21:46:00
 ---
 
-![](https://c1.staticflickr.com/5/4447/37853352862_9fae96c74f_k.jpg)
+![](https://farm5.staticflickr.com/4838/46966844351_58a6b5715b_b.jpg)
 
 無意間看到網路上有人這樣形容布達佩斯：「*比布拉格有深度、比華沙繁榮、比維也納有趣、比得上巴黎浪漫、卻更經濟*」我只希望呢！比得上台南好吃，哈哈哈，因為久仰布達佩斯的美食多到不可思議又不貴，所以想把此地當成一個休憩點，慢慢走慢慢逛慢慢吃，就是當作在度假！
 
@@ -40,7 +40,7 @@ date: 2017-10-21 21:46:00
 
 ## 布達佩斯簡述
 
-![](https://c1.staticflickr.com/5/4487/37174687814_b86747483c_k.jpg)
+![](https://farm8.staticflickr.com/7921/40002339283_df5c788b1a_b.jpg)
 
 到了當地，空氣中就很有墾丁或是沖繩的氛圍，整個人也悠閒了起來，唯獨缺憾是沒有海，河也不夠清澈，不過走到哪裡都是大把大把的觀光客，很容易被那氛圍感染，這就是一個度假勝地啊！但如果要體會什麼叫做「匈牙利」可能就要再往周遭去探索了，在這裡就是.....一起瘋就對了！！**我覺得布達佩斯是一個很適合跟好朋友們一起來起笑的地方，因為各種類型的玩樂都有，風景有，夜生活也很豐富，食物又便宜，又很悠閒**，而且...令人意想不到的是，連按摩都好便宜！！！！我本來就很喜歡比較世界各國的按摩行情，無意間讓我發現在布達佩斯做泰式按摩 2 小時還不用台幣一千塊啊！到底還需要考慮什麼！！！！！按摩完去小酌一番，再獨自騎腳踏車乘著夜風回家，啊～～～真是完美的一日！
 
@@ -56,77 +56,77 @@ date: 2017-10-21 21:46:00
 
 很不錯的是，走在巷弄間抬頭無意間就能看到天使光
 
-![](https://c1.staticflickr.com/5/4442/37224915261_d7d1acb79f_k.jpg)
+![](https://farm5.staticflickr.com/4853/32025972367_85421d97b8_b.jpg)
 
-![天使光再現哈哈哈，只有親眼看見才會有震撼感](https://c1.staticflickr.com/5/4389/37224907231_8849d1bf4d_k.jpg)
+![天使光再現哈哈哈，只有親眼看見才會有震撼感](https://farm5.staticflickr.com/4833/33091499248_8faa3321a5_b.jpg)
 
 ### 漁夫堡
 
-![](https://c1.staticflickr.com/5/4378/37224918431_b1a6716457_k.jpg)
+![](https://farm5.staticflickr.com/4852/46914925352_71b02ac8fd_z.jpg)
 
 著名的漁夫堡充滿了正在拍攝的新娘新郎與正在辦桌的新娘新郎（攝影師真的盡心盡力）
 
-![](https://c1.staticflickr.com/5/4372/36515074564_2eae4e8831_k.jpg)
+![](https://farm5.staticflickr.com/4903/40002339223_97fef52dc0_b.jpg)
 
 另一組新人們～
 
-![](https://c1.staticflickr.com/5/4391/37224916121_790dbf3197_k.jpg)
+![](https://farm5.staticflickr.com/4830/46242468984_56f46b7dfa_b.jpg)
 
 在風景區常常可見感人的閨蜜～～
 
-![](https://c1.staticflickr.com/5/4477/24032065218_1d13cf349a_b.jpg)
+![](https://farm8.staticflickr.com/7821/40002339253_45310b1609_c.jpg)
 
 不分男女，大家都 hen 會沙龍照～～～
 
-![](https://c1.staticflickr.com/5/4444/37884778601_cd9cfb6b63_k.jpg)
+![](https://farm8.staticflickr.com/7862/46966843861_1605a538c8_b.jpg)
 
 從漁夫寶眺望河的景象
 
-![](https://c1.staticflickr.com/5/4351/37224917581_1a94f1816d_k.jpg)
+![](https://farm5.staticflickr.com/4895/46242468994_580a636f32_b.jpg)
 
 說到法國駐匈牙利協會（Institut Francais）的 4 樓還 7 樓可以看到超美的景象，無奈那個協會經常沒開門，我這次也撲空了！想要一探究竟之人務必做好功課
 
 漁夫堡旁的教堂，當時還聽到有街頭藝人（是東方人）居然在唱蘇打綠的歌，讓我一時有回台北的感覺
 
-![](https://c1.staticflickr.com/5/4397/37224914651_383943ece8_k.jpg)
+![](https://farm5.staticflickr.com/4915/46053043145_f5d8e05f02_b.jpg)
 
 漁夫堡旁，我一直想進去玩這個，半小時大概 390 台幣吧！但是他說可以把奧匈帝國的歷史搞得清清楚楚，而且這動畫做的這麼好！我超喜歡玩這類型的電動...到底...到底吾妹為何不讓玩啊（淚）
 
-![](https://c1.staticflickr.com/5/4468/37884783901_50b0f7d5ac_k.jpg)
+![](https://farm8.staticflickr.com/7926/46966844131_26ba7de1f3_z.jpg)
 
 ### 塞切尼鏈橋
 
 這個鎖鏈橋旁總是塞滿遊客，腳踏車都要下來用牽的，甚至晚上會有很多人坐或走在橋墩上，就像布蘭登費雪曾演出的泰山那樣喔，真的我沒騙你！
 
-![](https://c1.staticflickr.com/5/4335/37177284946_e2867348ff_k.jpg)
+![](https://farm8.staticflickr.com/7881/46242468894_023505a3ce_b.jpg)
 
 ### 夜景
 
 夜晚的國會大廈，當夜我跟妹妹跑去登了小山丘說想去 Buda Catstle 看夜景，可怕的是一路上全無路燈哈哈哈，但是一路上都有當地民眾一群一群的，讓我懷疑他們到底有多喜歡摸黑聊天，這大概是我最貼近當地人生活的一次，而且也沒有什麼危險的感覺！不過呢，因為真的無路燈，景色也沒有到令人窒息所以這條路線就不推薦！聽說可以坐纜車啦～
 
-![](https://c1.staticflickr.com/5/4352/37224913891_268a53ed6b_k.jpg)
+![](https://farm8.staticflickr.com/7840/46914925362_fcc17a1b11_b.jpg)
 
 經過感覺頗有北歐風的房子
 
-![](https://c1.staticflickr.com/5/4468/37174637814_e65be3870b_k.jpg)
+![](https://farm5.staticflickr.com/4850/40002339393_b05d7c50ce_b.jpg)
 
 登山路線經過的兩座橋
 
-![Liberty Bridge](https://c1.staticflickr.com/5/4431/37195270002_d8ca602d85_k.jpg)
+![Liberty Bridge](https://farm5.staticflickr.com/4917/46966844151_bf964bfa9f_b.jpg)
 
 看就知道左邊那一堆有多黑了吧XDD
 
-![Elisabeth Bridge](https://c1.staticflickr.com/5/4343/37224910661_b9c23f73bd_k.jpg)
+![Elisabeth Bridge](https://farm5.staticflickr.com/4811/32025972397_b6ef3deee8_b.jpg)
 
 說好橋上的人真的出現了！真的很多人在上面走來走去吃東西喝酒
 
-![](https://c1.staticflickr.com/5/4504/37627419390_1d27d07f23_k.jpg)
+![](https://farm5.staticflickr.com/4806/33091499218_6be52d5c7b_b.jpg)
 
-![](https://c1.staticflickr.com/5/4449/37164694493_7bc1467fe2_k.jpg)
+![](https://farm8.staticflickr.com/7880/46966843851_56f1a83574_b.jpg)
 
 我覺得夜晚的國會大廈超級漂亮，是說國會大廈旁有一個地下道，他們把它做成一個展覽室，其中有一個小螢幕在投影介紹改變世界的幾件大事，其中一個竟然有蔣介石打輸共產黨撤退來台的介紹，沒想到我蕞爾小國之事當年也深切影響了國際局勢，又想到台灣當今局面，我就心裡一陣酸。
 
-![國會大夏背面](https://c1.staticflickr.com/5/4369/37195269262_9101cfea06_k.jpg)
+![國會大夏背面](https://farm5.staticflickr.com/4834/46966844161_24b33df6c8_b.jpg)
 
 ### 塞切尼浴場
 
@@ -136,73 +136,73 @@ date: 2017-10-21 21:46:00
 
 手機可以帶進游泳池處，要拍照的捧友切記不要把手機也鎖在置物櫃中囉！
 
-![](https://c1.staticflickr.com/5/4445/37836027226_f8bfa2e05a_k.jpg)
+![](https://farm8.staticflickr.com/7902/46242468844_96c9419ec1_b.jpg)
 
 ### 英雄廣場 Heroe's Square
 
 是我最喜歡的建築之一，前往浴場的路上就會經過
 
-![](https://c1.staticflickr.com/5/4365/36515076264_d29c2a5408_k.jpg)
+![](https://farm8.staticflickr.com/7823/46966844221_0593f2d24c_b.jpg)
 
 這些雕像真的很栩栩如生欸，充滿故事性
 
-![](https://c1.staticflickr.com/5/4370/37224905661_0fa8e19bb6_k.jpg)
+![](https://farm8.staticflickr.com/7858/46242468864_f270376f98_b.jpg)
 
 Heroe's Square 旁邊的沃伊達奇城堡應該是布達佩斯規模最大的城堡吧，真的頗美
 
-![](https://c1.staticflickr.com/5/4409/37177287276_7e70b820fe_k.jpg)
+![](https://farm5.staticflickr.com/4906/33091499278_cb396fb2ab_b.jpg)
 
 去的時候剛好遇到市集，食物看起來很美味所以就決定在這吃了！這裡也讓我遇到布達佩斯第一帥哥 XDDD 反正就是在芸芸眾生中唯一覺得帥的男子（我是指布達佩斯的芸芸眾生而已）
 
-![](https://c1.staticflickr.com/5/4352/36970268100_dd009c4b64_k.jpg)
+![](https://farm5.staticflickr.com/4830/33091499318_30162f721c_b.jpg)
 
 市集裡的匈牙利傳統美食，看起來不怎麼樣，但是一大堆人在吃又很香，忍不住就手滑了
 
-![](https://c1.staticflickr.com/5/4465/37627300640_c4bf11d1a9_k.jpg)
+![](https://farm8.staticflickr.com/7844/46914925572_756e81042f_b.jpg)
 
 恩...這張照...我不多說我害羞，雞腿看起來很好吃哈哈哈哈哈
 
-![](https://c1.staticflickr.com/5/4496/37853609902_05e386a027_k.jpg)
+![](https://farm8.staticflickr.com/7904/46966844211_58a6b5715b_z.jpg)
 
 實際上是還不錯，氣味很好只是肉覺得太乾，然後那麵包讓空虛感達70%，這應該要配一碗公的白飯才能滿足吧？而且價錢比外面的食物都還貴，下次實在不宜再手滑，這種路邊攤食物還是亞洲做的卡好
 
-![](https://c1.staticflickr.com/5/4492/37627307760_3b75d485a5_k.jpg)
+![](https://c2.staticflickr.com/8/7839/32025972347_6f1bc941b5_b.jpg)
 
 ### 按摩
 
 這次來鬆一下的馬殺雞店就是他！我無法說他很棒，也無法說他不 OK，就是正常哈哈哈哈，騎車時也路過很多其他泰式按摩店，其實價錢都差不多耶！所以可以選擇自己就近的即可
 
-![](https://c1.staticflickr.com/5/4467/37174549824_ea16bebcd0_k.jpg)
+![](https://farm8.staticflickr.com/7851/40002339383_58759f712a_z.jpg)
 
-![](https://c1.staticflickr.com/5/4494/37884785261_af541b5da8_k.jpg)
+![](https://farm8.staticflickr.com/7870/46966844061_faa065d125_b.jpg)
 
 ### 街拍
 
 布達佩斯的路人們都長這樣，所以我都沒街拍到時尚人士們，不過我後來意識到：一般來說越熱的地方本就越不容易穿著時尚，熱都熱死了當然盡可能穿少，化妝也很容易花掉，所以日韓人士很有時髦的條件啊～～真是環境塑造行為～～
 
-![](https://c1.staticflickr.com/5/4471/37164577323_5a34e11184_k.jpg)
+![](https://farm5.staticflickr.com/4820/46914925342_f0e59e52b1_z.jpg)
 
 我真的以為我遇到布萊德利庫柏！不覺得真的很像嗎（？！
 
-![](https://c1.staticflickr.com/5/4513/37164675513_4272559427_k.jpg)
+![](https://farm8.staticflickr.com/7894/46966844301_58a6b5715b_z.jpg)
 
 以下是在國會大廈後面遇到的可愛情侶，男方首先公主抱女方但居然把人家摔下去，女方也沒生氣，後來他不撤退、不放棄、不妥協，改為韓劇式的扛霸子模式，實在 hen man hen cute
 
-![](https://c1.staticflickr.com/5/4482/37853390172_4dc2f58f85_k.jpg)
+![](https://farm8.staticflickr.com/7878/46966844141_c22558a4a1_z.jpg)
 
 國會大廈旁的衛兵，QQ 好像沒什麼看頭
 
-![](https://c1.staticflickr.com/5/4507/24032183338_0e4ad8d8bc_k.jpg)
+![](https://farm5.staticflickr.com/4814/46966844121_eb81caefe1_b.jpg)
 
 ### 逛街
 
 很想逛的古著店 Retrock Designer Vintage Store，但每次經過都關閉到底是為何！！！！難道此地跟巴賽隆納一樣都有午休時間（？）
 
-![](https://c1.staticflickr.com/5/4484/37884723011_397f87a223_k.jpg)
+![](https://farm5.staticflickr.com/4827/33091499028_08080b52b3_b.jpg)
 
 另一間想逛的店，一樣給我午休 why ?! 拜託拜託幫我逛
 
-![](https://c1.staticflickr.com/5/4490/37853421732_fc89b6bcb9_k.jpg)
+![](https://farm5.staticflickr.com/4836/40002339463_231e82f359_b.jpg)
 
 ### 通過吃才能得到幸福 - 美食分享
 
@@ -210,29 +210,29 @@ Heroe's Square 旁邊的沃伊達奇城堡應該是布達佩斯規模最大的�
 
 （連結會連到地圖上的位置）我覺得這個墨西哥小吃真的很美味耶，我還吃了兩次！主要就是吃捲餅，才一百塊台幣左右，兩個人吃也還蠻 OK 的，有多個分店但覺得[這間](https://www.google.com/maps/place/El+Bigote/@47.497252,19.0518185,16.06z/data=!4m5!3m4!1s0x4741dc41dd763b9f:0x40d2f16b33bc9f85!8m2!3d47.4978317!4d19.0560101)最好吃，另旁邊的換錢所據說是布達佩斯最好的，所以來換時別忘了吃旁邊這間捲餅！我的按摩店也在旁邊哈哈，可以變成一個套裝行程。
 
-![](https://c1.staticflickr.com/5/4469/37164598403_5bede8f0e9_k.jpg)
+![](https://farm8.staticflickr.com/7905/33091499358_886d40c6b8_z.jpg)
 
 #### Szimpla Kert
 
 猶太區有很多 ruined bars（就是廢墟感的 bar），但這間貌似最有名，我去的時候不誇張！真的整條街排隊都是為了進去這間 bar 但裡面其實算是一個小小廣場，裡面有許多不同酒吧，賣不一樣的東西，請務必要到此一遊！如果你跟我一樣不太喝酒的話，敝人的歐洲通小妞學妹推薦上二樓右手邊那間 bat 有 passion fruit lemonade，好喝好喝；下午來可能會人比較少。
 
-![](https://c1.staticflickr.com/5/4473/37853358292_0ed5e0a09f_k.jpg)
+![](https://farm8.staticflickr.com/7858/40002339373_2a37d11a50_b.jpg)
 
 #### [Belvárosi Lugas Vendéglő](http://lugas-etterem.com)
 
 個人覺得這間有雷到，但是 Tripadvisor 上的評分卻不錯，人潮也川流不息，覺得雖然不到不好吃，但是很無聊的口感，Goulash 是還不錯，畢竟到匈牙利就是要喝牛肉湯啊！但是喝到太像台灣口味的牛肉湯我反而沒有很欣喜，因為畢竟出國了我還是想要有點異國風味嘛～至今還是覺得三小國的 Goulash 最好喝
 
-![Chicken Stew in Creamy Paprika Sauce with Homemade Dumplings (7.5 euro)](https://c1.staticflickr.com/5/4406/37224903431_711d619161_k.jpg)
+![Chicken Stew in Creamy Paprika Sauce with Homemade Dumplings (7.5 euro)](https://farm5.staticflickr.com/4857/32025972327_afdbb1297a_z.jpg)
 
 點這道菜完全是個錯誤，實在是因為服務生太會說話，硬是說這個很好吃，我早該看到 Dumpling 就要勇敢撤退，所有在歐洲看到的 Dumpling 都不該觸碰啊！
 
-![Magyaros Belszinermek- Steak Medallions Hungarian Style (13 euro)](https://c1.staticflickr.com/5/4388/37177285886_b405cbafa4_k.jpg)
+![Magyaros Belszinermek- Steak Medallions Hungarian Style (13 euro)](https://farm5.staticflickr.com/4821/33091499208_2cff73891a_z.jpg)
 
 妹妹原本要吃最不容易被雷的食物：漢堡，結果也是也是因為服務生一直推薦（其實是半推半強迫哈哈），一堆馬鈴薯居然要價 13 歐...
 
 #### [Star Kebab Turkish Restaurant](https://www.starkebab.hu/en_US)
 
-![](https://c1.staticflickr.com/5/4469/37884714341_fbee91ff9b_k.jpg)
+![](https://farm8.staticflickr.com/7872/40002339433_9b341b7fbe_b.jpg)
 
 這間也是我歐洲通小學妹推薦的，其實就是土耳其式的自助餐耶，真的很便宜，口味上還蠻特別的，很適合中午來吃。但我沒有特別要推薦什麼XD 反倒是旁邊的飲料店我很喜歡（下面會跟其他飲料一起介紹）
 
@@ -244,31 +244,31 @@ Heroe's Square 旁邊的沃伊達奇城堡應該是布達佩斯規模最大的�
 
 不過他還是比波蘭的米其林貴一點，開水要付費，小費也已經自動加在帳單中省去煩惱。
 
-![餐廳外觀](https://c1.staticflickr.com/5/4461/37836169956_8091e1510d_k.jpg)
+![餐廳外觀](https://farm8.staticflickr.com/7876/46914925392_aca4a85532_b.jpg)
 
 這是免費的前菜甜點，我很喜歡這間有很多自己堆出來的小菜，很精緻跟周到，有一種我們真的是貴客的感覺～
 
-![](https://c1.staticflickr.com/5/4376/37195259902_760afbc048_k.jpg)
+![](https://farm8.staticflickr.com/7917/33091499298_e201a2d4a2_b.jpg)
 
 左邊的麵包跟奶油當然也是免費供應的囉～
 
-![](https://c1.staticflickr.com/5/4505/37836153156_c144baa9f4_k.jpg)
+![](https://farm8.staticflickr.com/7911/32025972517_e0b4cfb878_b.jpg)
 
 這是主廚招待的開胃菜-生鮭魚捲起司，好吃好吃想吃十個！
 
-![](https://c1.staticflickr.com/5/4355/37224902151_f483eafd6d_b.jpg)
+![](https://farm8.staticflickr.com/7912/33091499348_2ceb28e88f_b.jpg)
 
 以下開始就是我們自己點的囉！
 
-![](https://c1.staticflickr.com/5/4449/37174638924_8e898a37cb_k.jpg)
+![](https://farm8.staticflickr.com/7865/46966843981_ff04af0c2d_b.jpg)
 
 牛肉，這間的特色就是都會加入 velouté ，也就是魚汁或是肉汁加入奶油
 
-![Breast of duck, carrot variations, peanuts](https://c1.staticflickr.com/5/4476/37884772761_87dae9935f_k.jpg)
+![Breast of duck, carrot variations, peanuts](https://farm8.staticflickr.com/7905/46966844011_0d1e5c3c65_b.jpg)
 
 裡面有胡蘿蔔，真心甜美好吃，這個鴨肉也不太像鴨肉，嚐起來比較像火腿肉，肉色的醬汁帶點紅酒味，我至今仍可以準確感受到這道菜的味道，真是相當神奇 XD
 
-![Chocolate cake, blackberry sorbet](https://c1.staticflickr.com/5/4460/37853495892_d183b4b5b8_k.jpg)
+![Chocolate cake, blackberry sorbet](https://farm5.staticflickr.com/4862/40002339213_023505a3ce_b.jpg)
 
 坦白說我覺得每次吃到這種米其林餐廳，甜點都比主餐來的更加驚豔！這次也不例外！真的是幸福到飛上天去了～～～～
 
@@ -278,37 +278,37 @@ Heroe's Square 旁邊的沃伊達奇城堡應該是布達佩斯規模最大的�
 
 就是土耳其自助餐隔壁的飲料店～～好喝好喝
 
-![](https://c1.staticflickr.com/5/4492/37836097466_134b8b19d2_k.jpg)
+![](https://farm8.staticflickr.com/7827/46966844271_bbfdc7438a_z.jpg)
 
 也拍了菜單給大家
 
-![](https://c1.staticflickr.com/5/4500/37836089666_d286430eb9_k.jpg)
+![](https://farm8.staticflickr.com/7844/46914925332_9fbeab147f_z.jpg)
 
 這個冰淇淋三明治超想吃的！！！但後來沒吃哈哈哈
 
-![](https://c1.staticflickr.com/5/4471/37884717291_7b5158006d_k.jpg)
+![](https://farm5.staticflickr.com/4906/46966844261_1ce715a87e_z.jpg)
 
 #### [Budapest Baristas](https://www.facebook.com/budapestbaristas/)
 
 因為我在台灣就是一個飲料狂人，我可以犧牲主食的餐費也決不能放棄飲料！所以尋尋覓覓了兩家手沖咖啡，這間還不錯，有在水準之上
 
-![](https://c1.staticflickr.com/5/4496/37853375252_b1ef9200c9_k.jpg)
+![](https://farm8.staticflickr.com/7888/46966844291_567c92eea0_b.jpg)
 
 #### [Espresso Embassy](http://espressoembassy.hu)
 
 不過不論是裝潢或是口味上，我更喜歡這家！甚至離開前二訪了這間店，實在好喝！
 
-![](https://c1.staticflickr.com/5/4343/36970267140_93d51bf60e_k.jpg)
+![](https://farm5.staticflickr.com/4834/46914925402_842507767c_b.jpg)
 
 下面這家是超多人在排隊的冰淇淋店～～～
 
-![](https://c1.staticflickr.com/5/4498/24032140118_7a4aa6c62d_k.jpg)
+![](https://farm8.staticflickr.com/7820/46966844311_f4b746ed31_b.jpg)
 
 我的房東手抄給我他覺得好吃的 Goulash（牛肉湯）店
 
 也提供給大家囉！
 
-![](https://c1.staticflickr.com/5/4510/37836175036_3fbab8ddc2_k.jpg)
+![](https://farm5.staticflickr.com/4853/46966844051_45207d4b46_z.jpg)
 
 布達佩斯耍廢之旅就到此結束囉！是一個下次還會想來耍廢的地方，我剛剛搜尋 Tripadvisor 時又覺得還有好多餐廳想去吃沒吃到誒！不過若是要平復悲傷的心情，我覺得還是要前進大自然或是要能看海的地方才能有幫助。布達佩斯就是跟好友狂歡、耍廢、一路吃到底！
 

@@ -13,9 +13,9 @@ tags:
   - 旅遊
   - 必吃
   - 必玩
-date: 2017-10-25 01:42:00
+date: 2019-09-01 11:04:55
 ---
-![](https://c1.staticflickr.com/5/4474/37129591080_6ffc09e9b1_k.jpg)
+![](https://farm8.staticflickr.com/7920/31704508777_0d36453d78_b.jpg)
 
 維也納是個非常非常漂亮且乾淨的城市，但你卻要小心被路人搭訕丟屎！
 
@@ -48,113 +48,111 @@ date: 2017-10-25 01:42:00
 
 另外德文智障如我，直到看到了 N 個 Hof 後才驚覺 Hof 字尾就是什麼什麼站的意思。至於維也納西站是傳說中充滿各種便宜小吃之處，出去看後發現維也納比起其他國家真的是賣吃的小攤子特別多，跟一旁巨大典雅的建築物們卻很合理地相依偎了！價格上是真的不算太貴，但也沒有真的很便宜，然後 Kebab 市佔率好像很高.....
 
-![維也納火車總站](https://c1.staticflickr.com/5/4512/37129593160_6fa033ce9d_k.jpg)
+![維也納火車總站](https://farm8.staticflickr.com/7888/45921200284_7d6b594856_b.jpg)
 
-![市政廳廣場](https://c1.staticflickr.com/5/4339/23534328498_dfeb73b61a_k.jpg)
+![市政廳廣場](https://farm5.staticflickr.com/4883/46593508992_97a9efcf12_b.jpg)
 
-![國會大廈](https://c1.staticflickr.com/5/4488/36677394914_b64cd7e22e_k.jpg)
+![國會大廈](https://farm5.staticflickr.com/4804/31704508927_13a39116d3_b.jpg)
 
-![英雄廣場旁的維也納新王宮 Neue Burg](https://c1.staticflickr.com/5/4365/36716337033_0b3f95480a_k.jpg)
+![英雄廣場旁的維也納新王宮 Neue Burg](https://farm8.staticflickr.com/7874/32771268418_b6136dc102_b.jpg)
 
-![霍夫堡](https://c1.staticflickr.com/5/4331/23534306298_988d5b2faf_k.jpg)
+![霍夫堡](https://farm8.staticflickr.com/7874/31704508807_7c7772ddfd_b.jpg)
 
-![](https://c1.staticflickr.com/5/4433/23534313728_d4b94c9c1b_k.jpg)
+![](https://farm8.staticflickr.com/7896/45731027895_ec8ba751b5_b.jpg)
 
 我是覺得這些雕像都很戲劇化
 
-![](https://c1.staticflickr.com/5/4377/23534315218_cc52660c21_k.jpg)
+![](https://farm5.staticflickr.com/4913/31704509037_b6b733a16e_b.jpg)
 
 這位先生下面基底也太多東西
 
-![](https://c1.staticflickr.com/5/4478/37129632330_4d1da158cd_k.jpg)
+![](https://farm5.staticflickr.com/4871/32771268578_bff400942c_b.jpg)
 
 下面這個房子莫名讓我聯想到古靈閣
 
-![](https://c1.staticflickr.com/5/4513/37129634680_4cdacffd5c_k.jpg)
+![](https://farm5.staticflickr.com/4818/39680956113_4fbbe91665_b.jpg)
 
 斯蒂芬大教堂也是蠻美的，屋頂的金箔閃閃發亮，此地也是觀光客超多之處
 
-![](https://c1.staticflickr.com/5/4413/37129612820_7ee56be39e_k.jpg)
+![](https://farm8.staticflickr.com/7820/32771268508_e579afd43c_b.jpg)
 
-![](https://c1.staticflickr.com/5/4422/37129620670_84ee5a4ff3_k.jpg)
+![](https://farm5.staticflickr.com/4842/39680955973_6c0214f7c3_b.jpg)
 
 這個彩繪玻璃很特別喔！不是圖畫式的，也讓我想到俄羅斯方塊遊戲
 
-![](https://c1.staticflickr.com/5/4473/37129615790_32efaf1a0b_k.jpg)
+![](https://farm5.staticflickr.com/4907/39680956023_6e88537909_b.jpg)
 
 乾淨的維也納電車～～～
 
-![](https://c1.staticflickr.com/5/4492/37129611340_23f28d238b_k.jpg)
+![](https://farm5.staticflickr.com/4850/31704508727_28e9d856eb_b.jpg)
 
 到處都看到有人在清潔玻璃，到底有多愛乾淨XD
 
-![](https://c1.staticflickr.com/5/4429/37129610130_4b744d3712_k.jpg)
+![](https://farm8.staticflickr.com/7830/45921200674_36b0070e82_b.jpg)
 
 真的覺得漢德瓦薩之家很漂亮，只是看看沒走進也覺得很棒
 
-![](https://c1.staticflickr.com/5/4448/37356222632_fcdc4f7fb4_k.jpg)
+![](https://farm5.staticflickr.com/4832/32771268738_5b020bcdc7_b.jpg)
 
-![](https://c1.staticflickr.com/5/4433/37356219582_28328c539a_k.jpg)
+![](https://farm8.staticflickr.com/7800/39680956183_d0970f6f0a_b.jpg)
 
 充滿了食物小餐車，不過都沒有很吸引我，食物看起來都普普，歹勢我嘴叼亞洲人QQ
 
-![](https://c1.staticflickr.com/5/4403/37356213402_83e1a06f36_k.jpg)
+![](https://farm5.staticflickr.com/4860/45731027985_ddece5396d_b.jpg)
 
 但是卻真心喜歡只有維也納才有的這種街道的感覺，我稱之為米白色系大道 XD
 
-![](https://c1.staticflickr.com/5/4431/37356211722_cb2bbc4a08_k.jpg)
+![](https://farm8.staticflickr.com/7881/39680956093_bd1a75f744_b.jpg)
 
 這是此行到達最遠的地方：美泉宮，也是過去許多帝國的皇宮，不過外觀上來說，讓我感覺是比較簡樸的。
 
-![](https://c1.staticflickr.com/5/4430/37356210512_454f977b92_k.jpg)
+![](https://farm8.staticflickr.com/7920/45731027945_70d7fd0cb8_b.jpg)
 
 在維也納也補充到兩隻超可愛的小狗狗
 
-![](https://c1.staticflickr.com/5/4375/23534326018_2504a7638a_k.jpg)
+![](https://farm8.staticflickr.com/7881/39680955983_e42d1c835d_b.jpg)
 
-![](https://c2.staticflickr.com/2/1868/44528300721_c57649c58a.jpg)
+![](https://farm8.staticflickr.com/7884/31704508977_6ed078ca75_b.jpg)
 
 維也納是我第一次在歐洲看到巨型烏鴉之處，讓我想到東京（當然這隻不算巨型）
 
-![](https://c2.staticflickr.com/2/1864/44528300941_53f0c7e3a6_b.jpg)
+![](https://farm8.staticflickr.com/7833/45731027955_f758dce26b_b.jpg)
 
 不知道是否因為觀光客太多，維也納也是唯一在歐洲我見到商店裡保全非常多，而且會出來大街上走來走去的城市
 
-![](https://c2.staticflickr.com/2/1855/29590955177_3aae00bf12_b.jpg)
+![](https://farm5.staticflickr.com/4854/45921200484_430ae78ab9_b.jpg)
 
 可愛的郵筒！是說我有搜集各國的郵筒跟地下道蓋子照片，不知道會不會有人想看哈哈哈哈
 
-![](https://c1.staticflickr.com/5/4343/36716274163_1fc7c4a1d6_k.jpg)
+![](https://farm5.staticflickr.com/4832/39680956153_52aa12692f_b.jpg)
 
 住宿處的行李間需要招換綠色小鴨才能前往開門，覺得很可愛特此留念
 
-![](https://c1.staticflickr.com/5/4482/36677336104_69c23ca184_k.jpg)
+![](https://farm8.staticflickr.com/7909/32771268388_b9f4e877d5_b.jpg)
 
 到處都有水可喝也是蠻便民的，只是水量相當稀少啊哭哭哭
 
-![](https://c1.staticflickr.com/5/4382/37129586350_37a2bbfd2b_k.jpg)
+![](https://farm8.staticflickr.com/7883/32771268368_32c9dd4c87_b.jpg)
 
 ## 肉肉肉好多- 餐廳分享
 
 ### [Figlmüller](https://figlmueller.at/en/) - 比臉大豬排
 
-我去的是分店  Figlmüller Bäckerstraße
+我去的是分店 Figlmüller Bäckerstraße。早聽聞德語系國家菜色以肉多聞名（後來發現捷克也是），而維也納最有名的無非是比臉大豬排跟豬肋排，我們後來選擇了比臉大豬排，因為它離主要想去的景點都比較近，離奇的是我前兩晚上預約時（由於眾網誌都說沒有預約會吃不到）所有時段都滿了，但我想說反正有經過就去看看，發現人根本不多，完全不需要排隊，而且其實翻桌率很高！大家都吃肉吃很快呢！
 
-早聽聞德語系國家菜色以肉多聞名（後來發現捷克也是），而維也納最有名的無非是比臉大豬排跟豬肋排，我們後來選擇了比臉大豬排，因為它離主要想去的景點都比較近，離奇的是我前兩晚上預約時（由於眾網誌都說沒有預約會吃不到）所有時段都滿了，但我想說反正有經過就去看看，發現人根本不多，完全不需要排隊，而且其實翻桌率很高！大家都吃肉吃很快呢！
+![Figlmüller-Schnitzel: Our original made of pork for more than 110 years! (14.9 euro)](https://live.staticflickr.com/65535/48656697486_345ee44476_b.jpg)
 
-![Figlmüller-Schnitzel: Our original made of pork for more than 110 years! (14.9 euro)](https://c1.staticflickr.com/5/4474/37129591080_6ffc09e9b1_k.jpg)
+心得：很像某種日系豬排，我很確信在台灣吃過幾乎一模一樣的肉，他就是把豬肉打得扁扁乾乾的，完全不走多汁那路線，皮不算多，但是跟肉接縫得很好也算酥脆，但也不香，配上檸檬吃算是清新可口，沒有檸檬汁的話乾到難以下嚥。只不過我真的很想配一碗大白飯哈哈哈哈，這道菜兩人吃比較好，可以點其他的，我認為是可吃可不吃，但他是好吃的！而且意外有種日系味。另很多人都會加沙拉，但是沙拉看起來真的很小盤，而且超像小時候吃 69 塊提摩希簡餐會付的廉價沙拉，但是！這邊要價近 5 歐，所以我 no～nono。
 
-心得：很像某種日系豬排，我很確信在台灣吃過幾乎一模一樣的肉，他就是把豬肉打得扁扁乾乾的，完全不走多汁那路線，皮不算多，但是跟肉接縫得很好也算酥脆，但也不香，配上檸檬吃算是清新可口，沒有檸檬汁的話乾到難以下嚥。只不過我真的很想配一碗大白飯哈哈哈哈，這道菜兩人吃比較好，可以點其他的，我認為是可吃可不吃，但他是好吃的！而且意外有種日系味。另很多人都會加沙拉，但是沙拉看起來真的很小盤，而且超像小時候吃 69 塊提摩希簡餐會付的廉價沙拉但是這邊要價近 5 歐，所以我 no～nono。
+![Clear beef broth with sliced pancakes (4.5 euro)](https://farm5.staticflickr.com/4815/32771267948_3b87c4feab_b.jpg)
 
-![Clear beef broth with sliced pancakes (4.5 euro)](https://c2.staticflickr.com/2/1881/43619345065_afd3f1ee7c_b.jpg)
+這道湯我也覺得很亞洲風味，有點像吃越南河粉時會附的那種清湯，配上吃起來像面條的東西，我覺得非常好喝呢！但 broth 這個單字原本就是用肉熬煮的肉湯的意思，其實不就是清燉牛肉湯嗎XD
 
-這道湯我也覺得很亞洲風味，有點像吃越南河粉時會附的那種清湯，配上吃起來像面條的東西，我覺得非常好喝呢！但broth原本就是用肉熬煮的肉湯的意思，其實不就是清燉牛肉湯嗎XD
-
-![](https://c2.staticflickr.com/2/1854/29590955157_d885622286.jpg)
+![](https://farm8.staticflickr.com/7890/31704509007_d2555147a8_b.jpg)
 
 吃不完的話可以跟餐廳服務生要一張紙來打包，就像隔壁美眉們這樣。
 
-另外，這間店需要付小費，而且有的服務生拿機器給你按小費時臉會避開，但這間的服務生就站在旁邊看你按多少錢，我真的覺得超級詭異，也太害羞誒！因為這情況一時來的太快，我們實在不知道要給多少，所以就開口詢問他一般行情，他說：你覺得我有多好你就給多少，如果覺得我很爛你就不要給....(有回答跟沒回答一樣XD），後來還是靠 Google 才能解決。後來諮詢了在法留學旅歐多年的朋友，她說在法國有的店也會這樣，但若真的覺得服務的很普通真的可以按 0，他們也不會對你怎麼樣，她有親身嘗試過。
+另外，這間店需要付小費，而且有的服務生拿機器給你按小費時臉會避開，但這間的服務生就站在旁邊看你按多少錢，我真的覺得超級詭異，也太害羞誒！因為這情況一時來的太快，我們實在不知道要給多少，所以就開口詢問他一般行情，他說：你覺得我有多好你就給多少，如果覺得我很爛你就不要給....（有回答跟沒回答一樣 XD），後來還是靠 Google 才能解決。後來諮詢了在法留學旅歐多年的朋友，她說在法國有的店也會這樣，但若真的覺得服務的很普通真的可以按 0，他們也不會對你怎麼樣，她有親身嘗試過（我趕快卸責XD)。
 
 ### 中央咖啡館 Coffee Central 
 
@@ -162,19 +160,19 @@ date: 2017-10-25 01:42:00
 
 外觀上真的非常漂亮呢！
 
-![](https://c2.staticflickr.com/2/1844/29590955537_77c5750f86_b.jpg)
+![](https://farm5.staticflickr.com/4864/32771268158_66389395cc_b.jpg)
 
-![](https://c1.staticflickr.com/5/4508/37356275192_9ef03a4b08_b.jpg)
+![](https://farm5.staticflickr.com/4823/46645912711_12f9c2b0e8_b.jpg)
 
 [早餐菜單連結](https://www.cafecentral.wien/inhalt/uploads/cafecentral_kaffehauskarte.pdf)
 
-![Rich breakfast with 1 hot drink, roll, variety of breads, butter, small portion scrambled eggs, ham, cold cuts, cheese, fruit salad and fresh orange juice (15.9 euro)](https://c1.staticflickr.com/5/4397/36716278983_3b8817b313_k.jpg)
+![Rich breakfast with 1 hot drink, roll, variety of breads, butter, small portion scrambled eggs, ham, cold cuts, cheese, fruit salad and fresh orange juice (15.9 euro)](https://farm8.staticflickr.com/7835/46593509022_bf01a6ee8d_b.jpg)
 
-間單的維也納式早餐長這樣，牛奶不夠的話可以再跟他們要，一開始看到這樣我真的以為我一定會吃不飽，但喝完咖啡後還是蠻飽的，不過坦白說...兩個小時後我就肚子餓了 哈哈哈哈哈哈
+簡單的維也納式早餐長這樣，牛奶不夠的話可以再跟他們要，一開始看到這樣我真的以為我一定會吃不飽，但喝完咖啡後還是蠻飽的，不過坦白說...兩個小時後我就肚子餓了哈哈哈
 
-其實餐點真的沒什麼特別耶，表現得中規中矩但也不失水準啦！有點像是如果去名古屋一定要吃名古屋式的早餐（點飲料會送你吐司or水煮蛋），因為同樣都有一顆水煮蛋所以讓我聯想到，但說穿了水煮蛋＋麵包的搭配也沒什麼了不起，話又說回來出國就是吃個風味。不過！他的菜單真的很琳琅滿目，我想如果很多人一起來吃應該可以吃到很多好玩不同的東西。
+其實餐點真的沒什麼特別耶，表現得中規中矩但也不失水準啦！有點像是如果去名古屋一定要吃名古屋式的早餐（點飲料會送你吐司或水煮蛋），因為同樣都有一顆水煮蛋，所以讓我聯想到，但說穿了水煮蛋＋麵包的搭配也沒什麼了不起，話又說回來出國就是吃個氣味。不過！他的菜單真的很琳琅滿目，我想如果很多人一起來吃應該可以吃到很多好玩不同的東西。
 
-另外我這趟也發現德系國家的巧克力最好吃，大家可以試看看囉。
+**另外我這趟真心覺得德系國家的巧克力最好吃！大家可以試看看囉～**
 
 ### 後記 - 歐洲沒在安全的
 
@@ -184,7 +182,7 @@ date: 2017-10-25 01:42:00
 
 後來我跟妹妹終於在車子前面見到面，她把她的後背包丟給我說她要去找地方洗頭，我一看她的後腦勺上居然都是大便！！！當下..................
 
-我居然忍不住笑了出來，凹嗚，但是我妹根本沒時間管我就衝去旁邊的hotel廁所洗頭了！
+我居然忍不住笑了出來，凹嗚，但是我妹根本沒時間管我就衝去旁邊的旅館廁所洗頭了！
 
 她離開以後我才意識到是有人對她惡作劇了吧？天啊她該不會幼小心靈受創現在自己在那邊哭吧？但不知道為什麼我還是一直忍不住想笑，無法克制地，那個大便在頭上實在太有喜劇感了嘛！還好我在我妹出來之前就笑完了，問她到底發生了什麼事（當然已經關心完她被捉弄的心情後），以下是她的自述：
 
@@ -193,8 +191,8 @@ date: 2017-10-25 01:42:00
 > .
 > .
 > *是屎。*
-
-然後小哥罵完 Son of bitch 就大步離去。
+>
+> 然後小哥罵完 Son of bitch 就大步離去。
 
 其實這件事沒有很影響我們的心情，不過也還好沒有更誇張的事情，只是提供給大家參考，這個詭異的事情，我想一定有人遇到會崩潰的吧（？）一定要好好保護自己。
 

@@ -15,7 +15,7 @@ tags:
   - 景點
 date: 2018-01-19 01:45:00
 ---
-![](https://c1.staticflickr.com/5/4591/27595883389_4d49d6e04b_k.jpg)
+![](https://farm8.staticflickr.com/7803/33090765848_eec0262369_b.jpg)
 
 我最難忘波多的晚霞，玫瑰色雲朵與金碧輝煌的古老建築溫柔地交織在一起，就像想像中波多的葡萄酒一般溫醇
 抵達波多時已經快要五點，沒想到進入這個小鎮也會塞車。下車後原本一同的乘客卻立刻全部鳥獸散消失不見，只剩下我一人與淒涼的街景。
@@ -28,7 +28,7 @@ date: 2018-01-19 01:45:00
 
 奇幻世界的第一眼長這樣，內心 os：我終於回到有人有景物的地方啦！然後我還真的小跑步了起來，覺得開心啊！
 
-![](https://c1.staticflickr.com/5/4600/38495147555_1629e65a71_k.jpg)
+![](https://farm5.staticflickr.com/4851/32025204217_7697ae0771_b.jpg)
 
 我覺得整個里斯本跟波多都很像什麼失落的古文明帝國，曾經代表人類輝煌一時的文明，但現在很明顯感受到他的蕭條與衰落，但仍可以在巷弄中發現一些很有趣的寶藏，就看個人的緣分是什麼了，而波多的城市發展比里斯本更為集中，所以很像一個安排豐富的戶外的密室尋寶地，怎麼走都不無聊。
 
@@ -56,117 +56,117 @@ date: 2018-01-19 01:45:00
 
 波多跟里斯本一樣，剛過完葡萄牙最重要的節慶（上網查了一下，應該是[這個節日](http://www.sohu.com/a/148454041_739150)，裡面還有波多的宣傳影片，居然看到放天燈的活動），所以才掛了這些旗子都沒拆下，據我的葡萄牙朋友說，這個節慶跟新年一樣重要，所有葡萄牙人都會回家慶祝，真的會很瘋狂，可惜我晚了幾天，不然就能參與這盛會
 
-![](https://c1.staticflickr.com/5/4634/39372524981_b81f8e3edf_k.jpg)
+![](https://farm8.staticflickr.com/7834/46052303995_99758eb2e1_b.jpg)
 
 夕陽下的磁磚牆壁真的好美啊～～～～我只是使用 Google 地圖導航到青旅，沒想到前往的路上就能看見這麼多美麗的風景
 
-![](https://c1.staticflickr.com/5/4691/38495146695_9ee52e616d_k.jpg)
+![](https://farm8.staticflickr.com/7850/40001584153_e59bf1950c_b.jpg)
 
 遠方那塔就是波多最高的地標了，也是我說可以看夜景的地方
 
-![](https://c1.staticflickr.com/5/4600/39372524611_c587a77fdb_b.jpg)
+![](https://farm5.staticflickr.com/4867/46052303735_a168556c66_b.jpg)
 
 走著走著經過了波多的主教座堂，看到它的第一直覺就是，啊！好美！就像看到一個美女也是會像膝反射一樣，大腦自己發出了讚嘆的聲音
 
-![](https://c1.staticflickr.com/5/4684/27595872139_a82263270a_k.jpg)
+![](https://farm5.staticflickr.com/4917/33090766388_f955844c0c_b.jpg)
 
 門上面那些小小的圓圈圈讓我想到巴黎的聖母院，據說加拿大蒙特利爾的聖母院是依照它老家巴黎聖母院的原型所設計，但我覺得根本一點都不像，葡萄牙這位還比較有幾分神似
 
-![](https://c1.staticflickr.com/5/4595/39372524251_721ec4434a_b.jpg)
+![](https://farm8.staticflickr.com/7806/33090766158_ac1e9905de_b.jpg)
 
 從教堂就能往下看到世界遺產河-杜羅河
 
-![](https://c1.staticflickr.com/5/4683/38664541574_115925fdac_b.jpg)
+![](https://farm8.staticflickr.com/7807/46966069751_2cd5283589_b.jpg)
 
 側面看～依然 mix 了當地的特色紅屋頂
 
-![](https://c1.staticflickr.com/5/4693/39372523551_f096f8e647_k.jpg)
+![](https://farm5.staticflickr.com/4830/46052303865_b57e4f66d3_b.jpg)
 
 哎呀～真是怎麼看怎麼漂亮，超級像尋寶電影會出現的建築
 
-![](https://c1.staticflickr.com/5/4735/24508340797_3c1cc3fcdf_k.jpg)
+![](https://farm5.staticflickr.com/4874/33090766468_3e6f7ed794_b.jpg)
 
-![](https://c1.staticflickr.com/5/4591/25503575738_61ed947cc8_b.jpg)
+![](https://farm5.staticflickr.com/4829/46241714564_f48177e27e_b.jpg)
 
 我超級喜歡拍人家曬在房子外的東西，很喜歡這種很真實的居住生活感～
 
-![](https://c1.staticflickr.com/5/4682/39372522681_d380faa35d_k.jpg)
+![](https://farm8.staticflickr.com/7800/40001584483_b57e4f66d3_b.jpg)
 
-![](https://c1.staticflickr.com/5/4690/25503576488_360979e4b4_k.jpg)
+![](https://farm5.staticflickr.com/4885/46966069731_5a6024ccb9_b.jpg)
 
 花花草草讓我想到貝兒的家，但在台灣若是看到這堆草，我只會立刻想到，會不會有很多蚊子啊？！
 
-![](https://c1.staticflickr.com/5/4728/25503575368_3f4fb760a2_k.jpg)
+![](https://farm5.staticflickr.com/4871/46914167732_636ee3a354_b.jpg)
 
 ### 青旅 [Bluesock Hostel](https://www.bluesockhostels.com) 
 
 馬上到了我的青旅！來去放東西先，看到這個外表我真心覺得要喜極而泣，我終於從一個窮人要變身成富貴階級了嗎？想想以我的預算，每次都只能住在有點破破的「風味青旅」XD，何時我也能在這窗明几淨的地方借住一宿了呢！實在是好喜悅啊～～～～～～
 
-![](https://c1.staticflickr.com/5/4739/27595883579_48c60074ca_k.jpg)
+![](https://farm8.staticflickr.com/7838/40001584103_4536227322_b.jpg)
 
 Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦！這個地下室也好漂亮喔～～是吃早餐的地方呢！
 
-![](https://c1.staticflickr.com/5/4640/27595883669_292e8fe44e_k.jpg)
+![](https://farm5.staticflickr.com/4860/40001584163_9cbbd1cda0_b.jpg)
 
 大廳也設計得很棒，不管何時回來我總會稍微在這坐一下，服務人員也是任何問題都能回答
 
-![](https://c1.staticflickr.com/5/4597/27595883889_c0f1903d09_k.jpg)
+![](https://farm8.staticflickr.com/7895/46052303715_8fc6680902_b.jpg)
 
 我的房間～～雖然是 12 人的混宿，但大多數時間都蠻安靜的，他們也有提供給一家人，一群朋友的房間，算是能貼近各種族群的需求
 
-![](https://c1.staticflickr.com/5/4596/27595884419_9567997bc3_k.jpg)
+![](https://farm8.staticflickr.com/7897/46241714624_7445bfffe8_b.jpg)
 
 睡上鋪的人是有點可憐啦，我偷偷想嘗試爬過但都爬不太上去XD 也很喜歡他的窗簾～讓我可以有一個小小私密的空間，還有床頭燈旁小小的置物架，有沒有對使用者用心真的一眼就能看出來。牆壁旁邊那些小石頭，不知道是不是可以練習室內攀岩的XD？
 
-![](https://c1.staticflickr.com/5/4637/38664550284_14d560aa24_k.jpg)
+![](https://farm5.staticflickr.com/4907/46052303785_0c95007515_b.jpg)
 
 浴室也是另一個我很愛的地方，隨時都很乾淨、人很少外，注意到外面就直接是大馬路了嗎？歐洲沒有紗窗這件事每次都讓我覺得很新奇，因為可以直接面對房子外的世界，比如說我剛洗完澡就可以頭髮濕濕的跑去陽台看外面的人，或是你吹風機的電線夠長的話，就能在陽台吹頭髮，一邊喝飲料，覺得真的很好玩～～～
 
-![](https://c1.staticflickr.com/5/4588/27595884289_30c814baa4_k.jpg)
+![](https://farm5.staticflickr.com/4860/46966069561_c70a919230_b.jpg)
 
 浴室有洗手乳，我都拿來洗身軀跟當洗衣精 XDD 唯一不好的就是他的蓮蓬頭是用按的，按一下只能沖出水來十幾秒，的確是很環保的設計，只是覺得他持續能出水的時間有點短。
 
-![](https://c1.staticflickr.com/5/4681/27595884149_2b4981a197_k.jpg)
+![](https://farm8.staticflickr.com/7832/40001584013_014369df15_z.jpg)
 
 在櫃台發現了一個超級無敵可愛的名片設計，他們的櫃檯展示很多遊玩的資訊，我在那裡發現一間古著小店的名片，就立刻把它加入行程
 
-![](https://c1.staticflickr.com/5/4738/27595879999_1fcf604442_k.jpg)
+![](https://farm5.staticflickr.com/4814/46241714674_e07853dda2_b.jpg)
 
 ### 意外遇見的美麗
 
 逛完我的青旅後，出去發現迎接我的是一片粉紅色的天空，我不知道要怎麼說，實在是太美了啦！！！！！我根本應該自行帶婚紗來這裡拍的啊！！！！！！！
 
-![](https://c1.staticflickr.com/5/4680/27595912569_9dd5d0810d_k.jpg)
+![](https://farm5.staticflickr.com/4905/46052303955_3d1b13b07a_b.jpg)
 
 粉紅色的天空持續很久，染紅了整個波多的房子與大街小巷
 
-![](https://c1.staticflickr.com/5/4681/25503574598_d6e693eea8_k.jpg)
+![](https://farm5.staticflickr.com/4829/40001584533_44b168d9de_b.jpg)
 
 哎呀，真的是太美了，在我眼裡這些房子瞬間變成一堆紅蘋果臉的少女，相當可愛呀
 
-![](https://c1.staticflickr.com/5/4679/27595912109_c97cebbb43_k.jpg)
+![](https://farm5.staticflickr.com/4809/46052303985_749d42619a_b.jpg)
 
 ### 街頭晃晃
 
 被粉紅世界包圍的我本來想去逛街，我很愛去不認識的地方逛熟悉的牌子，比如說 Paul & Bear 跟 Bershka ，想看看同一時期有沒有不同的衣服或折扣，沒想到葡萄牙這裡的逛街店都晚上七點就關門了，只剩下很多小吃店......沿途中遇到這隻純白色的狗狗，真的好 Q 啊，我第一次看到全白的拉拉，要不是不會說葡萄牙文我一定會上前詢問可不可以摸摸牠的，畢竟一生應該就只能見到這隻拉拉一次。
 
-![](https://c1.staticflickr.com/5/4681/24508305417_1d6263534d_k.jpg)
+![](https://farm8.staticflickr.com/7907/46052303765_593b226c5f_b.jpg)
 
 我真的很喜歡這些小吃店，於是又衝進去買了一杯好便宜的咖啡，老闆照樣又親切地幫我插上吸管，可以執行我邊走邊喝的嗜好
 
-![](https://c1.staticflickr.com/5/4737/27595882929_e9719d25d1_k.jpg)
+![](https://farm8.staticflickr.com/7803/46914167832_68dd75e199_b.jpg)
 
 吃的小店應有盡有！看你愛哪間就進去！
 
-![](https://c1.staticflickr.com/5/4737/27595911599_612ffdf654_k.jpg)
+![](https://farm8.staticflickr.com/7844/33090766478_4c51cf578d_b.jpg)
 
 有時人在異地食慾會有點改變，就像懷孕一樣，我此時默默地很想吃這擁有一堆奶油的蛋糕，看到這麼多奶油真的很想用嘴巴消滅他們....現在仔細一看，覺得很像台灣古早的蛋糕店裡會有的款式
 
-![](https://c1.staticflickr.com/5/4645/38495127585_1acc72452e_k.jpg)
+![](https://farm5.staticflickr.com/4839/46052303745_e0eab7a101_b.jpg)
 
 不過我覺得還是算了，踩雷會不開心的，這些東西感覺就很死甜
 
-![](https://c1.staticflickr.com/5/4635/27595883139_1c8722dd5d_k.jpg)
+![](https://farm5.staticflickr.com/4877/46966069701_d4a7a6f768_z.jpg)
 
 走著走著發現我巴黎友人家所使用的沐浴乳同牌子！我覺得 Basil 真的很香啊，住在她家期間我每天都用那罐洗髮乳，一直到快離開的時候，我就跟她說，誒你那罐 Basil 的洗髮乳真的很香耶我每天都用，想不到
 
@@ -176,31 +176,31 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 但我發誓他真的不是男香啦！就是一個青檸味而已
 
-![](https://c1.staticflickr.com/5/4737/27595882749_538b07e4ed_k.jpg)
+![](https://farm8.staticflickr.com/7849/46052303665_8f20706d5b_b.jpg)
 
 很喜歡觀察每個地方的飲料店是在賣什麼，這家感覺是葡萄牙版的星巴克，我好像再度忍不住買東西喝了，因為這裡都沒有很貴，不過完全忘記喝了什麼，一定是因為滋味不怎麼樣。
 
-![](https://c1.staticflickr.com/5/4600/27595882609_3b9c4f806c_k.jpg)
+![](https://farm5.staticflickr.com/4908/40001584003_b7180902ee_b.jpg)
 
 波多的街道上出現了好多的倫敦的電話亭，根據隔天參加 Free tour 的導遊說，**除了倫敦，這是唯一能看到正宗紅色電話筒的地方**了。原因呢？導遊說是因為英國人太愛波多的葡萄酒，於是他們就簽了協議，一方給酒，一方出軍隊，同時還送來很多電話亭當作禮物
 
-![](https://c1.staticflickr.com/5/4633/27595911269_25e6bca5d6_k.jpg)
+![](https://farm8.staticflickr.com/7864/32025204237_ae301a6e2b_b.jpg)
 
 夜晚的 Clérigos Tower
 
-![](https://c1.staticflickr.com/5/4635/25503572888_b84085c3fb_k.jpg)
+![](https://farm8.staticflickr.com/7833/46241714974_840b122bd4_b.jpg)
 
 聖本篤車站值得白天跟晚上各來一次，因為感覺完全不一樣，我很喜歡牆上那些壁畫講述著葡萄牙的歷史。如果要坐火車到其他地方玩也是坐到這裡沒錯。
 
 在這裡遇到了私人的導覽行程，偷聽了一兩句，內心默默地也想要租一位私人導遊，從歐洲第一個城市玩到現在，覺得看到很多東西都充滿好奇，不想要走馬看花，想跟著熟知當地歷史的導遊走，不知市場有沒有這樣的需求.....當時還真的就上網查了！果然有耶！只是真的太貴了，我一個人實在負荷不了啦。
 
-![](https://c1.staticflickr.com/5/4593/27595871409_b3aa944616_k.jpg)
+![](https://farm8.staticflickr.com/7825/33090766218_4bee3d7234_b.jpg)
 
-![](https://c1.staticflickr.com/5/4733/27595909269_ddb237f9fb_k.jpg)
+![](https://farm5.staticflickr.com/4885/46052304015_20884da440_b.jpg)
 
 車站外觀，也是很美
 
-![](https://c1.staticflickr.com/5/4689/25503571808_420b6b12e3_k.jpg)
+![](https://farm5.staticflickr.com/4904/46052303965_a634384c6d_b.jpg)
 
 這裡獻上我當時很興奮拍給朋友的小短片，沒有高畫質因為沒有買小影高級會員哈哈
 
@@ -208,7 +208,7 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 夜晚的杜羅河，真的很美，我每次都會帶一些小東西坐在河邊吃完再回青旅，走回去不到一分鐘，這河簡直像是座落在我家後院一般！免費的夜景很奢華！這種大鐵橋在歐洲真是少見。
 
-![](https://c1.staticflickr.com/5/4591/25503571268_c30778502d_k.jpg)
+![](https://farm8.staticflickr.com/7862/46052303925_bd36b8fb51_b.jpg)
 
 ### 波多也要 Free Tour
 
@@ -232,11 +232,11 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 我覺得主教座堂的內部是最豪華漂亮的，只是不懂為何大白天的光線卻很暗
 
-![](https://c1.staticflickr.com/5/4734/38664567004_6b108226eb_k.jpg)
+![](https://farm8.staticflickr.com/7898/46966069831_00c68c6f6e_b.jpg)
 
 另外葡萄牙的教堂也很愛放置耶穌的木乃伊，雖然不是真的，但應該還是有人會害怕吧....關於這點，導遊只有說是為了要提醒世人耶穌的犧牲，不過還是很想知道這種傳統這麼保留下來的....
 
-![](https://c1.staticflickr.com/5/4593/39342980702_c7fdeb88f7_k.jpg)
+![](https://farm8.staticflickr.com/7880/40001584463_3c8a74e249_b.jpg)
 
 走到理查一世的鐵橋上可以看到兩岸的風景，這個導遊跟里斯本的導遊一樣，會在行進中嘗試跟每個人講到話，當我跟她提到台灣時
 
@@ -244,33 +244,33 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 >
 > 我回她：「重點是 24 小時都能找到東西吃呢！」
 
-![](https://c1.staticflickr.com/5/4589/24508334767_b5b535da39_b.jpg)
+![](https://farm8.staticflickr.com/7859/46914168012_e70a385ef2_b.jpg)
 
 也能看到纜車，與像萬里長城的東西
 
-![](https://c1.staticflickr.com/5/4691/39342986812_438825b56a_b.jpg)
+![](https://farm8.staticflickr.com/7812/46241714864_5d4676dc94_b.jpg)
 
 我注意到他們很多房子都有像魚鱗片的造型，很可愛，我記得挪威的房子外觀也有類似的，總之就是漁民向魚兒致敬
 
-![](https://c1.staticflickr.com/5/4644/25503564678_933a6fe320_b.jpg)
+![](https://farm5.staticflickr.com/4878/46966070111_aca762438d_b.jpg)
 
 想不到葡萄牙的導遊團也會被帶去禮品店強制購物XDD 總之這是一間甜點店，導遊說她從小吃到大，但我們也可以選擇不吃啦！只是大中午的走到真的很口渴，默默地不分男女老幼大家都買了，用了導遊教的葡萄牙問說謝謝！Obligada（女生用）但大家的結論都是超甜的，所以我就不附上地址了。
 
-![](https://c1.staticflickr.com/5/4681/27595881639_0e1cc3c639_z.jpg)
+![](https://farm8.staticflickr.com/7805/46914167692_ccfd8decc0_z.jpg)
 
 行程最後停在我最常來的橋下。導遊說了一個關於波多名稱的小故事，如果有注意到波多機場的簡寫，會發現是 OPO，原因是因為英國人都把 Porto 叫做是 Oporto，但其實 Porto 從來就只是Porto，會變成 Oporto 是因為英國人習慣說 the Porto (那個波多啦！)，說久了別人以為 the Porto 是連在一起的名字，the 在葡萄牙文似乎是偏向 O 的發音，所以就變成 Oporto 啦！歷史真是有趣呀～～最後導遊還送上她自己私藏的餐廳名單，把所有她喜歡的店都附在上面了！後來我也嘗試了其中兩間，真的都是蠻有年紀的店，沒什麼裝潢的那種。
 
-![](https://c1.staticflickr.com/5/4634/27595881269_f61d358b96_k.jpg)
+![](https://farm5.staticflickr.com/4860/33090766038_8dd01188b5_b.jpg)
 
 有 $$ 符號的是比較貴的意思
 
-![](https://c1.staticflickr.com/5/4647/38664548424_472c2fbe26_k.jpg)
+![](https://farm5.staticflickr.com/4918/46914167712_dae952fd93_z.jpg)
 
 導覽後期有跟一位來自中國的交換生聊了一下，後來我們就決定在 Free Tour 結束後一起去吃導遊在導覽中有提到的波多特產 Francesinha，上面圖中的第一位 [Verso em Pedra](https://www.facebook.com/versoempedraalfandega/) 就算是 Francesinha 的專賣店。
 
 導遊說 Francesinha 就是一個在波多生活過的法國人弄出來的東西，她也不懂在紅什麼～總之就是一堆三明治按壓在一起，裡面可以夾任何東西，淋上肉汁、蛋液或起司，我當然是又點了有寫 Spicy 字樣的 Aphrodisiac Francesinha ($11)，其實我覺得還蠻美味的，就是軟軟的一堆吐司沾湯的感覺，但吃了一半以後開始會有點膩，不過我很滿意那根辣椒，因為它真的會辣！有辣一切好說！最後我還幫對面的飯友吃完他的份，誰叫算命師說我的命格中帶三個食神呢～～這個要一般人吃完一份應該有問題，但吃完的話應該可以飽到晚上，也算是蠻實惠的。 （這裡不能刷卡）
 
-![](https://c1.staticflickr.com/5/4693/27595880829_d3c6734e96_k.jpg)
+![](https://farm8.staticflickr.com/7814/46966069581_643f0a1003_b.jpg)
 
 這位飯友唸的是中國清華大學的物理博士，我問他一路唸書唸到博士累不累，他說回答我說做自己喜歡的事怎麼會累？看來真是很愛唸書的朋友呢！我還請教了他一些人生問題哈哈哈，總之他給我的結論就是，別做勉強自己的事。
 
@@ -280,35 +280,35 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 後來又繼續跟飯友一起參觀了萊羅書店，下午去幾乎已經沒有人，買票要花 4 塊歐元，但可以抵買書的費用。這裡這麼紅是因為除了書店本身真的很美以外（號稱全世界最美三大書店），哈利波特中一些場景的靈感也據傳是啟發於此。
 
-![](https://c1.staticflickr.com/5/4594/27595870729_376e485684_k.jpg)
+![](https://farm5.staticflickr.com/4837/46052303945_03f8a7b235_b.jpg)
 
 其實真的很美，只是旅人也真的好多
 
-![](https://c1.staticflickr.com/5/4601/27595903739_0fba15ac65_k.jpg)
+![](https://farm8.staticflickr.com/7819/40001584383_1b983fbb09_b.jpg)
 
 本來想說看能不能買到所需的書，但原文書都好貴呀～～只好作罷，4 塊錢就當作哈利波特迷的致敬吧！
 
-![](https://c1.staticflickr.com/5/4589/39342983292_ff342c769a_k.jpg)
+![](https://farm5.staticflickr.com/4862/46052304005_683ce9d592_b.jpg)
 
 這裡有一堆哈利波特的書～～～
 
-![](https://c1.staticflickr.com/5/4595/39342981402_7318abf012_k.jpg)
+![](https://farm5.staticflickr.com/4830/32025204197_669b4b7f75_b.jpg)
 
 這本我小時候有買他的中文版 XDDD
 
-![](https://c1.staticflickr.com/5/4727/27595880299_6d22cd721f_k.jpg)
+![](https://farm8.staticflickr.com/7811/32025204137_a9ec9f5402_z.jpg)
 
 二樓的牆上有一面是空白的大紙，上面畫了很多沒有書名的書，可以讓訪客自行填上想填的書名，我一眼就辨認出台灣人專屬的文字感
 
-![](https://c1.staticflickr.com/5/4641/39342982112_21d4482107_k.jpg)
+![](https://farm8.staticflickr.com/7903/32025204177_40ec140379_b.jpg)
 
 又發現一枚歹丸朋友的蹤跡 XDDDD
 
-![](https://c1.staticflickr.com/5/4725/39342982082_cf5d3076a2_k.jpg)
+![](https://farm5.staticflickr.com/4904/33090766408_21c3e7bcf9_b.jpg)
 
 到萊羅書店就該跟我一樣，在旋轉樓梯拍一張認證照！
 
-![](https://c1.staticflickr.com/5/4637/39342942452_0ff181679b_b.jpg)
+![](https://farm5.staticflickr.com/4846/40001584033_144b2715fd_z.jpg)
 
 ### [Majestic Coffee](https://www.cafemajestic.com/en/Utilities/Homepage.aspx) 
 
@@ -332,35 +332,35 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 大概就是長這樣，好像沒什麼好說的XDD 特殊之處應該是可以上二樓去俯瞰教堂
 
-![](https://c1.staticflickr.com/5/4595/39342979962_558e757779_k.jpg)
+![](https://farm8.staticflickr.com/7866/40001584493_68c4bc3e37_b.jpg)
 
-![](https://c1.staticflickr.com/5/4735/24508332257_6da624aee6_k.jpg)
+![](https://farm5.staticflickr.com/4855/32025204247_f400a04f76_b.jpg)
 
 仔細看這神奇的小東西真的很可愛
 
-![](https://c1.staticflickr.com/5/4679/27595880199_740ea082a7_k.jpg)
+![](https://farm5.staticflickr.com/4913/46966069401_5c9f909aae_b.jpg)
 
 不意外地，上歐洲教堂的觀景塔都必須要「獨上高樓，望盡天涯路」這樣，走樓梯走到皮皮喘這樣，還要跟無數對面來客互相閃身，總算是到啦！沒登高望遠一下好像沒來過這城市似的
 
-![](https://c1.staticflickr.com/5/4587/39342979102_52f6f107ae_b.jpg)
+![](https://farm8.staticflickr.com/7924/46052303905_20b3b446cf_b.jpg)
 
 登高一看發現真的全部是紅屋頂啊！好可愛喔！
 
-![](https://c1.staticflickr.com/5/4693/27595900759_992b57fb7d_k.jpg)
+![](https://farm5.staticflickr.com/4888/32025204257_8f1edf30fe_b.jpg)
 
 不能免俗地又在找家的方向啦！
 
-![](https://c1.staticflickr.com/5/4730/39342976632_9a6a87cc03_k.jpg)
+![](https://farm8.staticflickr.com/7811/33090766398_4bedb38470_b.jpg)
 
 我很喜歡波多有很多大遍綠地，樹也不多，可以直接感受到太陽的照射
 
-![](https://c1.staticflickr.com/5/4738/39342978682_ddd3b4ed19_k.jpg)
+![](https://farm5.staticflickr.com/4811/40001586853_55699ffe02_b.jpg)
 
 我有點忘記我後來到底都做了些什麼，很有可能是逛街去了，我後來在這裡的 Bershka 買到一件原本在台北有點想買的花花雪紡衫，記得台北店賣 1290 之類的，還好當時有禁慾，我在這裡花不到 300 塊就入手了！**歐洲折扣季真是大寶庫啊！！！！！要來歐洲之前，知道會遇到折扣季的話就要跟我一樣執行禁（購物）慾計畫，不要再買衣服了啦～！！**
 
 黃昏的鐵橋也是如此可愛～～～
 
-![](https://c1.staticflickr.com/5/4735/27595897729_ff109865a9_k.jpg)
+![](https://farm8.staticflickr.com/7905/33090768818_7199a229ac_b.jpg)
 
 坐在岸邊的時候突然發現底下很吵，想說到底是什麼啊！後來發現居然是一堆魚不知道在幹嘛，而且持續很久很久，他們一直激動難道都不會累嗎？我猜測是否因為出水口會一直帶來很多營養物，也就是食物，所以他們才一直聚集在哪裡，還有搶食物的感覺。我錄了影片問農家子弟我爸爸，說魚怎麼會這樣啦？！他只淡淡地回我說：阿魚本來就這樣啊。
 
@@ -368,68 +368,68 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 總之我希望自己不要掉下去，被魚分食的感覺應該不會太好
 
-![](https://c1.staticflickr.com/5/4686/25503565628_d7ab3daa54_k.jpg)
+![](https://farm5.staticflickr.com/4818/33090766338_edc04cc677_b.jpg)
 
 夜裡，我跟隔壁床的美國大媽瑪格麗特變成好朋友，她跟我說對抗中國的心要堅持住XDDD 還跟我分享了從法國南部到西班牙有一條健行步道，有看過電影《那時候，我只剩下勇敢》的話應該可以想像，大部份的人都是靈修者，或是說，想要尋找自己的人，她說她只走了一小段，全程走完似乎需要兩個禮拜，路上有很多人在走，其實不會感到害怕，很安全。瑪格麗特還介紹了同房的兩個加拿大女生、一個英國男子給我，他們邀請我隔天一起去海邊上衝浪課，我說衝浪課我有上過了，或許可以一起去海邊玩。說也尷尬，那個加拿大女生前一天晚上超級吵的，我經過時還默默偷偷瞪了她一眼，認識之後才發現是非常好聊的女生，有一種不打不相識的感覺，以後還是不要隨便討厭別人好了 XD
 
 隔天一大早我立刻又跑去河邊想看看前一晚的魚群還在不在，沒想到居然！！！！死不撤退！！！到底有什麼東西那麼好吃，需要這要 24 小時守候，魚的體力跟堅持力實在是太好了，難怪要吃魚油顧身體（？
 好啦我知道這是謬論不要理我，總之這群魚應該變成波多的記憶點之一，有人再訪波多的話一定要去看看這些魚，是否還為了美食守候著，或許他們每隻魚身上也帶了三個食神吧！才會如此執著。
 
-![](https://c1.staticflickr.com/5/4591/39342973612_befc28a7aa_k.jpg)
+![](https://farm5.staticflickr.com/4858/33090768898_a92cd5c159_b.jpg)
 
 早晨的鐵橋又是另一番風景，真心話是百看不膩
 
-![](https://c1.staticflickr.com/5/4681/39342984392_83d42de11d_b.jpg)
+![](https://farm5.staticflickr.com/4810/46052303885_8ccc575b70_b.jpg)
 
 早上的河岸也真的很迷人呢 XDDDD
 
-![](https://c1.staticflickr.com/5/4634/27595880979_06211893b6_k.jpg)
+![](https://farm5.staticflickr.com/4866/33090765958_9f1214e074_b.jpg)
 
 看完美景我要出發到稍微比較偏僻的地方去吃我同學推薦的美食～～～路上再度經過了很多漂亮的花磚房子
 
-![](https://c1.staticflickr.com/5/4593/39342983622_e50ddc3438_k.jpg)
+![](https://farm8.staticflickr.com/7836/46052305345_303249929c_b.jpg)
 
-![](https://c1.staticflickr.com/5/4682/27595894689_65457a3e18_k.jpg)
+![](https://farm8.staticflickr.com/7874/40001586943_7ed75f644e_b.jpg)
 
-![](https://c1.staticflickr.com/5/4688/27595894099_7f52f82760_k.jpg)
+![](https://farm8.staticflickr.com/7843/46241714984_1432be385e_b.jpg)
 
 其實我阿公阿罵家的浴室也貼了很多花磚，但是是有點裸露的美女那種哈哈，即使等級差了有點多，我還是覺得這些花磚給我很強烈的熟悉感
 
-![](https://c1.staticflickr.com/5/4590/24508321917_d51b33ee31_k.jpg)
+![](https://farm8.staticflickr.com/7924/46966071881_2696f5e2db_b.jpg)
 
 另一種花磚的美
 
-![](https://c1.staticflickr.com/5/4730/27595878039_ff5ada1988_k.jpg)
+![](https://farm5.staticflickr.com/4808/32025204077_84f0b9c343_b.jpg)
 
 ### 餐廳 [Solar Moinho de Vento](http://www.solarmoinhodevento.com/english.php)
 
 這家店外很特別，怎麼說呢？因為通常歐洲或美國都不太喜歡看見魚頭或是牛頭、豬頭這種東西，即使北歐處理這麼多魚，我也從未看過他們的櫥窗會把魚頭擺出來，但這裡有！哈哈哈熟悉感再度上升
 
-![](https://c1.staticflickr.com/5/4725/27595878399_0f4ab78e90_k.jpg)
+![](https://farm5.staticflickr.com/4806/46914167812_f8b14ede38_b.jpg)
 
 進去以後，氛圍是高級餐廳感，但服務人員很親切，我超喜歡，完全沒有距離感！看看價錢發現好便宜，所以我本人今天來當貴婦，要就要全套！多點了前菜、熱茶還有甜點，不到 30 塊台幣的熱茶當然是給他點下去了啊！
 
 這是一種吃起來像青椒又像青辣椒的菜，但完全不會辣，我真心覺得很好吃，用烤的就是好吃啦！後來給在西班牙唸書的朋友看了這個，他們說西班牙的這種 Tapas 也很好吃。
 
-![Fried Green Pepper with Salt ($4)](https://c1.staticflickr.com/5/4592/27595878979_0f25873e5d_k.jpg)
+![Fried Green Pepper with Salt ($4)](https://farm5.staticflickr.com/4840/46966069431_451a53c31c_b.jpg)
 
 這個魚塊因為是用炸的，所以沒什麼味道，反而是九層塔的味道重了些，但我蠻喜歡它清爽的口感 ()
 
-![Codfish "Pataniscas" served with today's Rice ($8.5)](https://c1.staticflickr.com/5/4739/27595878729_a48e96ae7b_k.jpg)
+![Codfish "Pataniscas" served with today's Rice ($8.5)](https://farm5.staticflickr.com/4913/40001584203_c47ac5d62b_b.jpg)
 
 雖然魚沒什麼味道，但可以沾蕃茄湯飯一起吃，就會有味道多了！我超級喜歡這桶飯的造型，有「一種一整鍋都是我的」之感，而裡面確實也飯量很多！我喜歡葡萄牙料理其中一個原因就是，多飯！雖然不是那種香噴噴的軟Ｑ米飯，但只要是飯我都蠻喜歡的。這種料理方式其實就是「飯湯」，不是粥，而是把飯放入湯裡，同茶泡飯的做法。
 
-![左邊是我點的檸檬熱茶](https://c1.staticflickr.com/5/4588/27595878599_b940f643ab_k.jpg)
+![左邊是我點的檸檬熱茶](https://farm8.staticflickr.com/7918/46966069691_5602c5154c_b.jpg)
 
 這頓飯我真心吃得很滿足，最後來的是可愛的布丁，非常好吃！甜而不膩耶，再度印證了歐洲不錯的餐廳甜點都不會令人失望的道理。
 
-![Egg Pudding-Specialty ($3)](https://c1.staticflickr.com/5/4739/27595878479_1f81f17829_b.jpg)
+![Egg Pudding-Specialty ($3)](https://farm8.staticflickr.com/7847/46241714644_b4121c6445_b.jpg)
 
 我的人生實在是太幸福了！這頓飯真的讓我幸福無比～～忍不住就留下小費了～～～
 
 出來後發現旁邊的小公寓走道有很美的長廊
 
-![](https://c1.staticflickr.com/5/4643/27595878229_ee17777c06_z.jpg)
+![](https://farm5.staticflickr.com/4901/46966069741_91334b9808_z.jpg)
 
 ### 咖啡店 [Cafe Candelabro](https://www.tripadvisor.com.tw/Restaurant_Review-g189180-d10357698-Reviews-Cafe_Candelabro-Porto_Porto_District_Northern_Portugal.html)
 
@@ -471,67 +471,67 @@ Check-in 完後我馬上到處去逛逛，超級喜歡做地毯式搜索的啦�
 
 **這句話跟他臉上的溫暖笑容真的讓我覺得我彷彿是一個十年左右的老顧客，那樣的溫馨，那樣的備受歡迎**，想不到再見已是太難。我後來也沒機會再跑回去喝咖啡了。
 
-![咖啡店的外觀](https://c1.staticflickr.com/5/4686/39342970072_e45a8fc0f7_k.jpg)
+![咖啡店的外觀](https://farm5.staticflickr.com/4887/46241714954_1d834048fb_b.jpg)
 
 後面真是充滿了酒～～坦白說，我點的拿鐵算正常，有點像 7-11 的拿鐵哈哈哈哈，但喝起來的感覺就是無價！
 
-![](https://c1.staticflickr.com/5/4595/27595879569_4ae1e9381d_z.jpg)
+![](https://farm8.staticflickr.com/7818/46914167702_80eb6f8e9e_z.jpg)
 
 ### 下一站：古著店
 
 前往古著店的路上也看到很多新奇的東西，花磚是到處都有的～只是我特別喜歡這些經典花色
 
-![](https://c1.staticflickr.com/5/4590/27595879639_f005718e3d_z.jpg)
+![](https://farm5.staticflickr.com/4910/32025203997_ccf978739e_z.jpg)
 
 C 羅的面具真的很好笑！！！我內心在想到底是誰想買一張彩色列印的面具，他的眼睛處甚至沒有穿洞！！！！這樣戴上去不是立馬變瞎子嗎？！到底所求為何？
 
-![](https://c1.staticflickr.com/5/4689/38664543694_4cee185961_k.jpg)
+![](https://farm5.staticflickr.com/4908/32025204127_ae229e3bed_b.jpg)
 
 沒想到.......（請仔細看）他的燦笑實在太爆笑了
 
-![](https://c1.staticflickr.com/5/4641/27595879709_e03c569711_z.jpg)
+![](https://farm8.staticflickr.com/7898/46052303685_3d5dbc12b4_z.jpg)
 
 默默覺得這種門的造型也頗有閩南味，很像剪紙會剪出來的形狀，真的很美
 
-![](https://c1.staticflickr.com/5/4735/38664544654_69f4ca1ba3_z.jpg)
+![](https://farm8.staticflickr.com/7813/46914167802_82ae57acbe_z.jpg)
 
 路途中也經過了傳統的理髮店，覺得老爺爺真可愛
 
 （題外話，發現波多當地的男子黑髮居多，而且都喜歡留大鬍子，尤其是年輕男生）
 
-![](https://c1.staticflickr.com/5/4641/38664544844_31f158dfdb_z.jpg)
+![](https://farm5.staticflickr.com/4825/40001584023_199b69707d_z.jpg)
 
 走路經過一個市集時也發現有日本媳婦經營的日本料理，因為版書寫得不錯有被吸引，看起來很好吃啊！也不貴，要不是我已經吃飽很可能給他捧場一番
 
-![](https://c1.staticflickr.com/5/4589/38664545284_0398f834a1_z.jpg)
+![](https://farm8.staticflickr.com/7802/46966069721_34a56ab169_z.jpg)
 
 這是一本我覺得貌似很美的攝影集
 
-![](https://c1.staticflickr.com/5/4729/38664545044_757687b2bc_z.jpg)
+![](https://farm8.staticflickr.com/7867/46966069711_84f0b9c343_z.jpg)
 
 走著走著古著店終於到啦！！！在古著店外面就看到很型的人出現了
 
-![](https://c1.staticflickr.com/5/4680/27595876459_99cd68ddaf_z.jpg)
+![](https://farm8.staticflickr.com/7816/32025204097_4f3c94df9e_z.jpg)
 
 這間古著店叫做Mon Pere Vintage，真的蠻大間的，而且不貴，磚牆也是用葡萄牙一貫的花磚
 
-![](https://c1.staticflickr.com/5/4593/38664544214_f5bc45b03d_k.jpg)
+![](https://farm5.staticflickr.com/4909/46052303645_635d506b3a_b.jpg)
 
 將將將將！！！！！
 
-![](https://c1.staticflickr.com/5/4592/38664544524_4144703ef3_k.jpg)
+![](https://farm8.staticflickr.com/7831/46914167862_d597e7a762_b.jpg)
 
 sale 區超便宜！！！！
 
-![](https://c1.staticflickr.com/5/4735/27595876779_83b267484f_z.jpg)
+![](https://farm5.staticflickr.com/4819/46241714744_61fb468ab7_z.jpg)
 
 這些貨色是不是還不賴？？？
 
-![](https://c1.staticflickr.com/5/4597/38664538034_9ed5a84272_k.jpg)
+![](https://farm5.staticflickr.com/4843/46966069801_ba75da6166_b.jpg)
 
 這件比基尼我真的超想買，超可愛的，無奈這應該只有超級 xxs 女生才能穿～那件褲子我應該卡在膝蓋就上不去了，總之我最後居然只買了一件熱褲，彌補我在里斯本被偷的小紅 Puma～
 
-![](https://c1.staticflickr.com/5/4727/38664544394_053413c08b_z.jpg)
+![](https://farm5.staticflickr.com/4882/46914167842_e106a0dc09_z.jpg)
 
 ### 前往海邊
 
@@ -539,25 +539,25 @@ sale 區超便宜！！！！
 
 （BTW 發現很多歐美年輕人不愛用 iPhone，而且還討厭！加拿大女室友居然說她最愛三星！）
 
-![](https://c1.staticflickr.com/5/4599/27595879959_f6583e9aea_z.jpg)
+![](https://farm5.staticflickr.com/4831/32025204047_69be233520_z.jpg)
 
 一上公車就發現一個有 C 羅感的人，除了注意到他的明星臉外，我還注意到他非常漂亮的身材，為何他明明那麼瘦，卻能長出看起來這麼有生命力的肌肉啊？！！我有一個好朋友非常喜歡拉丁美洲裔的人種（以下簡稱拉美人），想當年她在學校的國際事務處當志工，每每有拉美人交換生就開心到不行，曾經我還陪她去游泳池畔堵微微暗戀的外系拉美人外籍生，世事難料，她對拉美人的執念是那樣深，沒想到她後來長期穩定的男友是一個皮膚超鬆軟的白人，完全相反型！每當說到此處她依然悔恨不已 XDDDD（當然她現在很幸福啦！)
 
 提到這故事是因為，我雖然聽聞拉美人身材好，但不曾親眼見過，我現在算是見識到了！我也不知道怎麼說耶，就是真的覺得肌肉的線條好美喔，而且並不刻意，那種美好像是天生的，存在的理所當然，也有一種，足球怎麼踢都踢不贏他們的感覺。想不到我等一下去海邊會看到更多身材好的拉美男子，好我現在也要開始喜歡拉美人了！！！
 
-![](https://c1.staticflickr.com/5/4595/24508304377_49d34f1285_k.jpg)
+![](https://farm8.staticflickr.com/7834/32025204007_876c7e79c5_z.jpg)
 
 前往海邊的路上風景非常美，無奈司機開太快我都無法照一張美的。
 
-![](https://c1.staticflickr.com/5/4739/27595892859_f9a77663dd_k.jpg)
+![](https://farm8.staticflickr.com/7817/40001584573_3ce9569830_b.jpg)
 
 幾艘小船停在平靜的湖面上，很愜意的感覺
 
-![](https://c1.staticflickr.com/5/4683/27595892329_5024598e94_b.jpg)
+![](https://farm8.staticflickr.com/7867/33090766108_a926120d4f_b.jpg)
 
 這個橋親眼看很美，被夕陽照射時會更美
 
-![](https://c1.staticflickr.com/5/4689/27595875429_9d2dc99100_k.jpg)
+![](https://farm8.staticflickr.com/7884/32025204057_23718b73e1_b.jpg)
 
 一到海邊時，我就注意到為何有一群很帥的男子在那邊瘋狂運動，而且每個身材都超級好，我實在是太害羞，只能大步經過，直到走得遠遠了，才敢拍下他們給朋友看（右邊那些，有看到背肌了吧？）
 
@@ -565,61 +565,61 @@ sale 區超便宜！！！！
 
 其實我默默有點悔恨，應該站在旁邊多看他們幾眼的，就算沒有要幹嘛，我也想努力記住他們美好的影像啊！因為我現在全都忘了 Orz
 
-![](https://c1.staticflickr.com/5/4725/39342948292_ac0a945c2c_k.jpg)
+![](https://farm5.staticflickr.com/4880/32025204017_7b5f1f6f15_b.jpg)
 
 坦白說這裡的海並不算太美，因為不是走清澈的路線，色澤上也沒有很藍，有一種旗津的感覺（我想是因為空氣中不斷傳來烤魷魚的味道吧！）不過我就是很想看海！
 
-![](https://c1.staticflickr.com/5/4587/24508320827_35c761cb00_b.jpg)
+![](https://farm8.staticflickr.com/7902/40001584523_8172959195_b.jpg)
 
 海邊的情人們依然黏踢踢，演繹著只有他們才懂得身體語言
 
-![](https://c1.staticflickr.com/5/4693/25503563708_942371bb0f_b.jpg)
+![](https://farm8.staticflickr.com/7873/46966069851_6f1e746659_b.jpg)
 
 我只是覺得他們的運動細胞看起來好像真的都很好
 
-![](https://c1.staticflickr.com/5/4736/38664537154_bc8f3d8a59_z.jpg)
+![](https://farm5.staticflickr.com/4825/32025204037_fd8377f046_z.jpg)
 
 波多海邊的海鷗也好多好多，多到像是他們的大巢穴就在此處
 
-![](https://c1.staticflickr.com/5/4679/39342962412_8eaa3d6273_b.jpg)
+![](https://farm5.staticflickr.com/4861/40001584403_3be74831ca_b.jpg)
 
-![](https://c1.staticflickr.com/5/4596/24508318547_1db8faf6a2_b.jpg)
+![](https://farm5.staticflickr.com/4822/46241714844_bbbf56e180_b.jpg)
 
 真的很多吧？
 
-![](https://c1.staticflickr.com/5/4686/39342959732_164b376d27_b.jpg)
+![](https://farm5.staticflickr.com/4903/46966069861_014c18bf2d_b.jpg)
 
 海灘上也有超多小朋友在踢足球，很喜歡這種有活力的場面
 
-![](https://c1.staticflickr.com/5/4738/24508317997_ef2519fc6b_b.jpg)
+![](https://farm8.staticflickr.com/7920/46241714764_94d15bc873_b.jpg)
 
 沙灘排球當然也是不可少的囉！
 
-![](https://c1.staticflickr.com/5/4635/27595874889_70f7422b22_z.jpg)
+![](https://farm5.staticflickr.com/4881/46966069541_06ee71acb0_z.jpg)
 
 可愛的小狗狗也懂得欣賞夕陽
 
-![](https://c1.staticflickr.com/5/4633/24508318007_99111152e7_k.jpg)
+![](https://farm5.staticflickr.com/4860/40001584513_5d3925b98f_b.jpg)
 
 路上遇到某瑞典老爸又在當新好奶爸了，包頭就是帥！（不知為何直覺就覺得是瑞典人，這種形象與打扮實在就是瑞典爸爸的經典款）
 
-![](https://c1.staticflickr.com/5/4639/27595874769_6e316e9165_k.jpg)
+![](https://farm8.staticflickr.com/7881/40001584273_869d4dc30e_b.jpg)
 
 夕陽西下，走出海邊時發現幾乎所有餐廳外面都放著一個露天烤盤，是用木炭烤的喔！要把海鮮直接 BBQ 來吃，如果我不是一個人應該也會決定在這裡用餐吧！感覺是點什麼都可以立即烤來吃，光聞就覺得好香喔，而且歐洲難得能看到有煙的碳烤，讓我覺得是在過中秋了嗎？不過看來我只能回市中心去演我一個人的精采了～
 
 波多的夕陽是我心中最美的，因為映著這城鎮的點點微光（同樣因為司機開太快無法好好拍）
 
-![](https://c1.staticflickr.com/5/4734/24508315597_6497c9657a_k.jpg)
+![](https://farm5.staticflickr.com/4813/46241714794_73a78ff696_b.jpg)
 
 我願意只為了看這美景再坐一次這趟公車
 
-![](https://c1.staticflickr.com/5/4738/24508315347_f55d76987d_k.jpg)
+![](https://farm5.staticflickr.com/4897/46241714834_e9c645b98f_b.jpg)
 
 照片拍不出我眼中的震撼，真的實在是太美了！我只覺得是上帝給我的禮物
 
 不是只有我覺得美呢，我看我後座的乘客每個人都在狂拍
 
-![](https://c1.staticflickr.com/5/4738/27595874639_9befb004a9_k.jpg)
+![](https://farm8.staticflickr.com/7806/33090766028_e5c0f23f56_b.jpg)
 
 ### 回程
 
@@ -627,21 +627,21 @@ sale 區超便宜！！！！
 
 想不到吃起來實在超像虱目魚哈哈哈，右邊那個菜吃起來也很像我爸常拿來煮粥的菜豆，這道菜實在太有台灣味了！（除了馬鈴薯外）不過他實在有點油，所以我再度點了 0.5 歐的熱紅茶包來解解渴。其實我不一定要吃魚，只是因為這裡是漁港，自己覺得應該要吃吃看海鮮，但把魚用煎的其實也已經吃不太出來到底鮮不鮮了。
 
-![](https://c1.staticflickr.com/5/4587/39342948022_8e7485815e_k.jpg)
+![](https://c2.staticflickr.com/8/7926/40001584243_3d105ea46f_b.jpg)
 
 這道菜因為網路上找不到菜單，名字我已經無法找出了，只記得價格是 7、8 歐左右
 
 吃飽回去的路上我還奔去某間店想要最後再買杯冰淇淋咖啡，想不到居然很早就關了QQQ 路上雖然都沒什麼人，但我也不感覺害怕，在波多唯一驚險的就是前一天晚上我手拿著一杯咖啡準備邊走邊喝回家的時候，右前方突然有一個感覺神智不太正常的先生朝我蹣跚而來，他的步伐有點像美國影集的喪屍，嘴巴喃喃唸著：「coffee~ coffee~」手勢感覺就是想要拿我手中的飲料，我當時也不知道哪根筋不對，總之我對食物的佔有慾都很重，內心想著：「這是我的咖啡！！！」所以我握得緊緊的，打算他如果敢搶，我絕對會跟他搶到底，可能因為他感覺只是一個老人，我自信力氣應該不會輸給他，此時我跟他還隔了一條小巷的距離，在他還沒碰到我，我打算拔腿就跑前，突然有一台計程車朝我跟這位怪叔叔之間撞過來（他開的不快），我看了一眼駕駛座，駕駛座上的先生用手勢示意我趕快跑，於是我就超級驚慌的跑走了，後來也有回頭確認想要咖啡的叔叔沒有再跟上來。事後回想我其實給他就好，到底為何執念如此重。
 
-![](https://c1.staticflickr.com/5/4641/39342945172_e9086ed844_k.jpg)
+![](https://farm8.staticflickr.com/7829/46966070071_b3250e16c7_b.jpg)
 
 後來還遇到一隻小可愛～動物不管是在世界的何處都一樣可愛～～～～
 
-![](https://c1.staticflickr.com/5/4593/27595889419_5b248b3652_k.jpg)
+![](https://farm8.staticflickr.com/7919/46241714874_9416097542_b.jpg)
 
 回去的路上還經過了動滋動滋的夜店，發現夜店的飲料五顏六色真是精采
 
-![](https://c1.staticflickr.com/5/4597/39342947932_18fa65f2ba_z.jpg)
+![](https://farm8.staticflickr.com/7919/33090766078_3045dec145_z.jpg)
 
 ### 跟青旅的朋友們的最後一晚
 

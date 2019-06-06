@@ -13,7 +13,7 @@ tags:
   - 美食
 date: 2017-10-30 19:25:00
 ---
-![](https://c1.staticflickr.com/5/4508/36676953114_3706417f9c_k.jpg)
+![](https://farm8.staticflickr.com/7825/46964891871_005f9faa55_b.jpg)
 
 **布拉格整體而言很像一個精緻的童話小鎮**，歐洲其他地方也很像童話故事，但**這裡的房子特別精緻， 漂亮到不像是暴露在陽光和雨水之中的建築**，而是有人特意維護與建造的大型室內建築，好像一座大型的遊惡園。所以我認為，這裡說是「真正的童話之都」也不為過。這裡最著名的文學家是卡夫卡，我看過他幾本著作，很難想像在這麼童話地方出生的人會有如此細膩複雜的心思，不過我們也只能看到可愛的建築表象，無法看見房子裡當時壓迫猶太人的複雜人心。
 
@@ -37,70 +37,71 @@ date: 2017-10-30 19:25:00
 
 這就是我所說的夜巷之美
 
-![](https://c1.staticflickr.com/5/4436/37129342160_3dcaf5ee44_k.jpg)
-![看著就很舒適的大廳](https://c2.staticflickr.com/2/1873/43810424634_9b02292ae7_b.jpg)
+![](https://farm5.staticflickr.com/4895/46051110095_ce40ba42c9_b.jpg)
+
+![](https://farm5.staticflickr.com/4817/40000475513_b78d2033a2_b.jpg)![看著就很舒適的大廳](https://farm8.staticflickr.com/7917/46051109955_b8d2ee78fb_b.jpg)
 
 我覺得最適宜的青旅配置其實就是這麼簡單，但很多地方卻設計不良。
 
-![](https://c1.staticflickr.com/5/4493/37129169300_728c02fc65_k.jpg)
+![](https://farm5.staticflickr.com/4911/46964892021_143043eb54_b.jpg)
 
 床舒適不舒適，一躺就知道了～～～～真的好舒服！
 
-![](https://c1.staticflickr.com/5/4372/37129152960_b757b50876_k.jpg)
+![](https://farm5.staticflickr.com/4851/46051109755_c3ec3e03c3_b.jpg)
 
 浴室不但豪華，而且每間配置都不同，滿足各種洗澡嗜好的旅客 XD
 
-![](https://c1.staticflickr.com/5/4458/37129165460_ec5f898d1b_k.jpg)
+![](https://farm5.staticflickr.com/4908/46051109785_359fc5d810.jpg)![](https://farm5.staticflickr.com/4899/46051109675_0065c98da6.jpg)
 
 空間超大的浴室，還可以跟閨密一起洗完，一個人洗澡，一個人泡澡，一起聊天 XD  
 阿，當然情侶也是可以這樣 XD 根本全家人可以一起洗啊哈哈哈哈
 
-![](https://c2.staticflickr.com/2/1866/44527829111_04a10759d3_b.jpg)
+![](https://farm5.staticflickr.com/4858/46964892151_b9cecc10a1_b.jpg)
 
-![夜晚從房內可以看到的皇宮](https://c1.staticflickr.com/5/4389/37129154480_79ebbcf97c_k.jpg)
+![夜晚從房內可以看到的皇宮](https://farm8.staticflickr.com/7829/46240546284_445f573679_b.jpg)
 
-![早安皇宮！](https://c1.staticflickr.com/5/4422/37129151220_dcce0c2df3_k.jpg)
+![早安皇宮！](https://farm5.staticflickr.com/4807/40000475353_2342f93ef7_b.jpg)
 
-![伸出頭，就更靠近皇宮](https://c1.staticflickr.com/5/4455/37129149440_b9c243832f_k.jpg)
+![伸出頭，可以更靠近皇宮](https://farm5.staticflickr.com/4849/32024060137_55f8ebca73_b.jpg)
 
 以下三張分別是部分的早餐，並非全貌，所以我說很有誠意嘛
 
-![](https://c1.staticflickr.com/5/4492/37129139500_29c17fd195_k.jpg)
-![](https://c1.staticflickr.com/5/4506/37129141110_8522cff14b_k.jpg)
-![](https://c1.staticflickr.com/5/4447/37129137720_0ebc9df77d_k.jpg)
+![](https://farm5.staticflickr.com/4841/46051109905_e44b9aaf32_b.jpg)
+![](https://farm8.staticflickr.com/7812/32024059917_24eff567fe_b.jpg)
+![](https://farm8.staticflickr.com/7911/46051109895_0022207b44_b.jpg)
 
 天啦我居然用了超大篇幅來介紹一個青旅，看來我對他好像非常滿意XDDDD
 
 ## 走吧，到布拉格皇宮和老城區
 
-初訪布拉格，走的也是好觀光客的行程，如果只是要走那些很著名的景點，好像真的一天就能走完了，我最喜歡的地方是皇宮裡面的黃金巷 Golden Line，房子小小的，太陽快下山時真的人很少，可以盡情地拍照，早上還要排超長的隊才能進入皇宮呢！跟我一樣恨排隊的人士就可以選擇下午再行前往；如果想要感受河岸風味，可以到 Naplavka（搭輕軌可在 Vyton 或 Palackého náměstí 下車，看完跳舞的房子走過去即可），我們到時正好有大型的音樂祭活動，可以感受一下當地年輕人的活力，不過愚昧如我，看不出布拉格的年輕人與其他歐洲地方有什麼差異，是說這裡人的穿著沒有引起我想拍照的興趣就是了。
+初訪布拉格，走的也是好觀光客的行程，如果只是要走那些很著名的景點，好像真的一天就能走完了，**我最喜歡的地方是皇宮裡面的黃金巷 Golden Line，房子小小的，太陽快下山時真的人很少，可以盡情地拍照，早上還要排超長的隊才能進入皇宮呢！**跟我一樣恨排隊的人士就可以選擇下午再行前往；如果想要感受河岸風味，可以到 Naplavka（搭輕軌可在 Vyton 或 Palackého náměstí 下車，看完跳舞的房子走過去即可），我們到時正好有大型的音樂祭活動，可以感受一下當地年輕人的活力，不過愚昧如我，看不出布拉格的年輕人與其他歐洲地方有什麼差異，是說這裡人的穿著沒有引起我想拍照的興趣就是了。
 
 下面這兩張照片真的很精緻感啊！
 
-![](https://c1.staticflickr.com/5/4417/36677128604_6792b705e3_k.jpg)
-![](https://c1.staticflickr.com/5/4480/37355961272_0a6498843c_k.jpg)
+![](https://farm8.staticflickr.com/7926/46964891931_78dc3da416_z.jpg)
+![](https://farm8.staticflickr.com/7887/46964891841_9753d3ffbc_b.jpg)
 
 仔細看真的很漂亮卻不浮誇
 
-![](https://c1.staticflickr.com/5/4427/37338727106_edbccd8d6b_b.jpg)
+![](https://farm8.staticflickr.com/7803/46240546334_7eed87930c_b.jpg)
 
 不過因為這裡遇到的台灣同胞真的太多了，不誇張，大概每十分鐘就會遇到一組，如果進入著名的菠丹妮 Botanicus，那跟直接回到台灣也沒什麼兩樣了，可以享受被歐巴桑們包圍的樂趣；不過走在布拉格市中心時倒是會有一種錯覺，彷彿是走在台灣什麼歐風建築的主題樂園（可能是清境農場？），因為台灣人實在太多。我在路上也遇到幾個台灣阿姨，不知道什麼樣的機緣，努力在路旁跟一個洋人解釋台灣在哪裡，台灣是什麼，把外交使命揹在身上是台灣人的象徵，不是嗎？
 
-![無時無刻人都多多的橋](https://c1.staticflickr.com/5/4412/37386162531_2b0af00546_b.jpg)
+![無時無刻人都多多的橋](https://farm5.staticflickr.com/4859/32024059727_8688d85372_b.jpg)
 
 ### 布拉格吃什麼
 
-這次本來想要再繼續攻佔 CP 值高的米其林，但是如同前幾篇說到的，因為連續三天吃了米其林，我這窮酸體質居然真的一想到那類食物就反胃....加上後來發現青旅 Little Quarter Hostel 走出去左前方那家義大利 Pizza 好好吃又便宜（只比必勝客那種大 pizza 小一點，卻只要約 100 塊台幣而已），居然就真的沒有再進入任何餐廳 XDDDD
+這次本來想要再繼續攻佔 CP 值高的米其林，但是如同前幾篇說到的，因為連續三天吃了米其林，我這窮酸體質居然真的一想到那類食物就反胃....加上後來發現青旅 Little Quarter Hostel 走出去左前方那家義大利 pizza 好好吃又便宜（只比必勝客那種大 pizza 小一點，卻只要約 100 塊台幣而已），居然就真的沒有再進入任何餐廳 XDDDD
 
-不過，多次出差布拉格的學長有推薦一間 隸屬Ambiente 集團的餐廳 **[čestr](http://cestr.ambi.cz/en/)**（該集團旗下的餐廳都有一定品質） ，顧客能夠選擇牛肉部位來點餐，據說非常細緻與美味，光是前菜就可以是牛肉 sashimi，無奈我到訪時官方網站說明他們正在整修，有請美食饕客能夠幫我完成此一心願，不然我也是有可能僅為此理由而重返布拉格 XDDD
+不過，多次出差布拉格的學長有推薦一間 隸屬 Ambiente 集團的餐廳 **[čestr](http://cestr.ambi.cz/en/)**（該集團旗下的餐廳都有一定品質） ，顧客能夠選擇牛肉部位來點餐，據說非常細緻與美味，光是前菜就可以是牛肉 sashimi，無奈我到訪時官方網站說明他們正在整修，有請美食饕客能夠幫我完成此一心願，不然我也是有可能僅為此理由而重返布拉格 XDDD
 
 另外，**[FIELD](http://www.fieldrestaurant.cz/en/)** 也是學長的當地人同事們推薦的好吃米其林，一樣被我錯過了嗚嗚嗚，但無私提供給同我一般熱愛美食的捧友。最後學長叮嚀太晚不要去地鐵站 můstek 附近。
 
  令人欣喜的大杯飲料，在 [Cafe Modi](https://cn.tripadvisor.com/LocationPhotoDirectLink-g274707-d7123299-i138807697-Cafe_Modi-Prague_Bohemia.html) 買的，覺得好喝
 
-![](https://c2.staticflickr.com/2/1880/43618872765_f8f5c6c160_z.jpg)
+![](https://farm8.staticflickr.com/7835/32024059817_4a564448aa_z.jpg)
 
-布拉格還有很多地方可以去，比方說城堡，或是網路上說最大的猶太區，不過因為時間不多，對布拉格的印象也是充滿遊客的氣味，難以感受到任何當地的風情。其他有印象的，大約就是一直不斷喜歡調情的賣披薩義大利小哥，還有超級大杯的飲料了，我在歐洲人開的店從沒看多 700cc 的杯子，看到時真的很感動，立刻對布拉格大愛！！！！！我還發現他們逛街的地方也很集中，很喜歡那種熱鬧的感覺，離開遊客過多的地方對布拉格的欣賞就會加深許多。
+布拉格還有很多地方可以去，比方說城堡，或是網路上說最大的猶太區，不過因為時間不多，對布拉格的印象也是充滿遊客的氣味，難以感受到任何當地的風情。其他有印象的，大約就是一直不斷喜歡調情的賣披薩義大利小哥，還有超級大杯的飲料了，我在歐洲人開的店從沒看多 700 c.c. 的杯子，看到時真的很感動，立刻對布拉格大愛！！！！！我還發現他們逛街的地方也很集中，很喜歡那種熱鬧的感覺，離開遊客過多的地方對布拉格的欣賞就會加深許多。
 
 ## 照片分享
 
@@ -108,114 +109,108 @@ date: 2017-10-30 19:25:00
 
 特別拍了早晨的繁忙與日暮感
 
-![](https://c2.staticflickr.com/2/1897/43618873175_187583cb4a_b.jpg)
+![](https://farm8.staticflickr.com/7910/46912981082_aab379e222_b.jpg)
 
-![](https://c2.staticflickr.com/2/1872/43810425144_08565cef24_b.jpg)
+![](https://farm5.staticflickr.com/4915/46051109795_8003dee93a_b.jpg)
 
 ### 里加感建築
 
 後來我覺得有這類型感覺的房子似乎都曾是共產國家
 
-![](https://c2.staticflickr.com/2/1878/43618872885_b59ff2f4b8_z.jpg)
+![](https://farm8.staticflickr.com/7811/33089590368_f1f301ff0a_z.jpg)
 
-![](https://c2.staticflickr.com/2/1877/43810425604_6f9f246cef_b.jpg)
+![](https://farm8.staticflickr.com/7878/46964891811_310af05d4b_b.jpg)
 
-![很有胡桃鉗感的房子～！](https://c2.staticflickr.com/2/1882/43618871805_29981eee19_z.jpg)
+![很有胡桃鉗感的房子～！](https://farm8.staticflickr.com/7883/46964891911_1929ddafce_z.jpg)
 
 ### 城堡內
 
 我最喜歡的黃金巷來了，真的都沒人
 
-![](https://c2.staticflickr.com/2/1898/42719069880_956487be59_b.jpg)
+![](https://farm5.staticflickr.com/4827/46051109805_dcf9002449_b.jpg)
 
 黃金巷的房子真的很可愛，尤其每個門上面都有可愛的編號
 
-![](https://c1.staticflickr.com/5/4508/36676953114_3706417f9c_k.jpg)
+![](https://farm5.staticflickr.com/4911/32024059987_80cc9ce9ea_b.jpg)
 
-![](https://c1.staticflickr.com/5/4444/36676956424_aae24b4c87_k.jpg)
+![](https://c1.staticflickr.com/5/4901/45145073015_946e80a0b8_b.jpg)
 
-![](https://c1.staticflickr.com/5/4490/37338653096_fa028d67e7_k.jpg)
+![](https://farm5.staticflickr.com/4836/46240546254_6f203361ff_b.jpg)
 
 裡面的商店也都蠻可愛的，雖然太晚去會關門，但那些店外面也都有，不是黃金巷才有的
 
-![](https://c2.staticflickr.com/2/1897/43618873025_54143bc37c_z.jpg)
+![](https://farm5.staticflickr.com/4888/32024060047_3da8cbaf80_z.jpg)
 
 黃金巷內略感風霜的木造窗戶
 
-![](https://c2.staticflickr.com/2/1847/42719069990_6d4eb35669_b.jpg)
+![](https://farm5.staticflickr.com/4830/46964891781_0065c98da6_b.jpg)
 
 城堡的側面看起來不知為何很有布達拉宮的感覺
 
-![](https://c1.staticflickr.com/5/4413/36676895664_d58f5a1741_k.jpg)
+![](https://farm5.staticflickr.com/4879/46964892001_95672c08ed_b.jpg)
 
 黃金巷再繼續走下去，左手邊能通到地下道去（我不清楚能不能進去），上邊掛著一副枯顱頭，猜測以前應該是地牢？不過這個長相讓我想到白雪公主卡通中，壞皇后最後逃走的地下水道，不就長得跟這個一模一樣嗎？
 
 想到一個冷知識，當年我到美國奧勒岡的迪士尼樂園玩時，才發現白雪公主被設定是德國人！因為我到的那個主題樂園是世界主題樂園，他們把每個國家設定成一個小園區，會有代表那個國家的公主站在該園區跟大家拍照，所以我才知道的。
 
-![](https://c2.staticflickr.com/2/1876/43810426084_cb51c6a64b_z.jpg)
+![](https://farm5.staticflickr.com/4816/32024060057_f8eb3db153_z.jpg)
 
 皇宮內的聖維特主教教堂坦白說也不會輸巴黎聖母院太多（個人觀感），只不過人家比較有故事性就是了
 
-![](https://c1.staticflickr.com/5/4398/36676979514_315aa10cda_k.jpg)
+![](https://farm5.staticflickr.com/4858/32024059977_18b3616a4a_b.jpg)
 
-![](https://c1.staticflickr.com/5/4507/23533874278_65f61ea34f_k.jpg)
+![](https://farm5.staticflickr.com/4880/46051110035_acacbc97b3_b.jpg)
 
-![](https://c1.staticflickr.com/5/4456/23533871038_38a81e0e72_k.jpg)
+![](https://farm5.staticflickr.com/4901/46964891891_985b0bd261_b.jpg)
 
 ### 街景
 
 城堡旁看到的布拉格風景～～
 
-![](https://c1.staticflickr.com/5/4453/36677038744_b0aa704e87_k.jpg)
+![](https://farm8.staticflickr.com/7805/40000475323_5f186e6282_b.jpg)
 
 衛兵交接典禮，其實只是剛好經過看到的，我自己覺得頗無聊 QQ
 
-![](https://c1.staticflickr.com/5/4472/23534033238_b99e4eb58b_k.jpg)
-
-![](https://c1.staticflickr.com/5/4493/37355990162_f0d1752aae_k.jpg)
+![](https://farm8.staticflickr.com/7894/46912981022_f554b6067b_b.jpg)
 
 街頭藝人還比較吸引我哈哈哈  
 而且這招，網路上不是有很多破解嗎？想不到能親眼看到這個快所有人都知道秘密的魔術，真的快笑死，被他們取悅了好久。
 
-![](https://c1.staticflickr.com/5/4356/37355984562_0eeed3c718_k.jpg)
+![](https://farm5.staticflickr.com/4886/46964891861_445f573679_b.jpg)
 
-![查理大橋附近的雕像頗有味道](https://c1.staticflickr.com/5/4415/37386159541_aea1977dcc_k.jpg)
+![查理大橋附近的雕像頗有味道](https://farm5.staticflickr.com/4839/32024059957_2946df3bf8_b.jpg)
 
-![左邊這橘色的房子，是老城區我最喜歡的](https://c1.staticflickr.com/5/4353/37355967842_22f392f33b_k.jpg)
-
-![從河岸可以看到的風景，遠方就是高堡](https://c1.staticflickr.com/5/4449/36715982583_7ce186f80c_k.jpg)
+![從河岸可以看到的風景，遠方就是高堡](https://farm5.staticflickr.com/4804/46240546274_2127a01c87_b.jpg)
 
 ### 廣場區的全景
 
-![](https://c2.staticflickr.com/2/1851/43810425814_dd52cb55ce_b.jpg)
+![](https://farm8.staticflickr.com/7831/32024060037_0c2b9549ba_b.jpg)
 
 ### 娃娃
 
 路上經過的娃娃們真是可愛XDDD
 
-![](https://c2.staticflickr.com/2/1863/43618872175_93eed2426d_b.jpg)
+![](https://farm5.staticflickr.com/4860/46051109605_75b034ecea_b.jpg)
 
-![](https://c2.staticflickr.com/2/1866/43618872515_768454808e_b.jpg)
+![](https://farm5.staticflickr.com/4806/46964891751_0065c98da6_b.jpg)
 
 我想知道他們為何這麼喜歡做娃娃？
 
-![](https://c2.staticflickr.com/2/1889/44478025142_c3ef935c38_z.jpg)
+![](https://farm8.staticflickr.com/7864/46964891991_445f573679_z.jpg)
 
 ### 其他
 
 經過了某間店覺得很美的彩繪
 
-![](https://c2.staticflickr.com/2/1876/43810425384_32fd7a6bdf_b.jpg)
+![](https://farm5.staticflickr.com/4835/32024059997_445f573679_z.jpg)
 
 在旅館的陽台看到了很圓的月亮
 
-![](https://c2.staticflickr.com/2/1876/43810424824_e5ebe71ed7_b.jpg)
+![](https://farm5.staticflickr.com/4843/46051109845_c1b9b99695_b.jpg)
 
 路上遇到的可愛狗狗，不知道主人跑到哪裡去 XD
 
-![](https://c1.staticflickr.com/5/4466/36715913653_70d16cb18c_z.jpg)
-
-![](https://c1.staticflickr.com/5/4357/36715881593_1f61431843_z.jpg)
+![](https://farm5.staticflickr.com/4912/46240546264_b621aac10a_n.jpg)![](https://farm8.staticflickr.com/7832/46964891971_be34fe7974_n.jpg)
 
 ## 餐廳分享
 
@@ -223,18 +218,18 @@ date: 2017-10-30 19:25:00
 
 地點就在民宿出來的左前方
 
-![](https://c2.staticflickr.com/2/1874/43810426534_d7e7638852_b.jpg)
+![](https://farm8.staticflickr.com/7822/46912981062_459353870c_b.jpg)
 
 我覺得 Mostramelo 非常好吃！但也有吃其他的也好好吃呀～～～～～
 
-![](https://c2.staticflickr.com/2/1842/43618872375_7341f33313_b.jpg)
+![](https://farm8.staticflickr.com/7878/46051109855_7827952af9_b.jpg)
 
 我也分不出是幾寸，但一般女生吃一個一定會吃不完的等級
 
-![](https://c1.staticflickr.com/5/4494/36715912273_0be4227c1a_k.jpg)
+![](https://farm8.staticflickr.com/7924/46240546344_f8eb3db153_b.jpg)
 
 輕軌附近這間 kebab 雖然很便宜，但我就覺得沒那麼好吃了
 
-![](https://c2.staticflickr.com/2/1846/43810427454_72e0f3d085_z.jpg)
+![](https://farm5.staticflickr.com/4814/40000475203_d6ef321ff2_z.jpg)
 
 布拉格之旅，結束！
