@@ -233,4 +233,6 @@ Sopot 海灘的天鵝，**是我一生中看過最大隻的**，眼神很凶惡�
 
 關於格坦斯克跟 Krakow 的美食推薦跟路人觀察，敬請期待第二集吧！
 
+[點擊前往第二集！：）](/2019/06/06/Poland-Food/)
+
 如果喜歡我的文章，歡迎追蹤 https://www.facebook.com/tallynherbelly/ 或 https://www.instagram.com/19894.8kg/
