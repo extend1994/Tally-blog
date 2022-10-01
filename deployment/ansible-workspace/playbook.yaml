@@ -1,0 +1,73 @@
+---
+- hosts: tallyblog
+  vars:
+    remote_username: ubuntu
+    nvm_version: v0.39.1
+    node_version: v12.22.12
+    nginx_document_root: /var/www/html
+  tasks:
+    - name: Update apt and install required system packages
+      become: true # sudo privilege
+      apt:
+        pkg:
+          - git
+          - vim
+          - curl
+          - mysql-server
+          - php-mysql
+        state: latest
+        update_cache: true
+
+    - name: Install nginx web server
+      become: true
+      apt:
+        name: nginx
+        state: latest
+        update_cache: true
+
+    - name: Apply nginx configuartion
+      become: true
+      template:
+        src: files/default_nginx.conf.j2
+        dest: /etc/nginx/sites-available/default
+
+    - name: Enable new site
+      become: true
+      file:
+        src: /etc/nginx/sites-available/default
+        dest: /etc/nginx/sites-enabled/default
+        state: link
+      notify: Restart nginx
+
+    - name: Install nvm for Node.js
+      remote_user: "{{ remote_username }}"
+      shell: >
+        curl -o- https://raw.githubusercontent.com/nvm-sh/nvm/{{ nvm_version }}/install.sh | bash
+      args:
+        warn: false
+        executable: /bin/bash
+
+    - name: Install Node.js for hexo
+      remote_user: "{{ remote_username }}"
+      shell: >
+        . /home/{{ remote_username }}/.nvm/nvm.sh && nvm install {{ node_version }}
+      args:
+        executable: /bin/bash
+
+    - name: Link Node.js binary
+      become: true
+      shell: >
+        ln -s /home/{{ remote_username }}/.nvm/versions/node/{{ node_version }}/bin/node /usr/bin/node
+      args:
+        executable: /bin/bash
+
+    - name: Install hexo globally
+      remote_user: "{{ remote_username }}"
+      shell: >
+        /home/{{ remote_username }}/.nvm/versions/node/v12.22.12/bin/npm install -g hexo-cli
+
+  handlers:
+    - name: Restart nginx
+      service:
+        name: nginx
+        state: restarted
