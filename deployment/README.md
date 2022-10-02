@@ -11,8 +11,25 @@
    sudo apt install -y ansible
    ```
 
-2. Run the following commands in the control machine to trigger deployment:
+2. (OPTIONAL, ONLY when the user uses the single host for the purpose of
+   both control and deployment) 
+   Run the following commands to enable localhost manipulation:
    ```shell
-   # under ansible-workspace directory
+   # and always press ENTER until the key is sucessfully generated
+   ssh-keygen -t rsa -C "ansible@localhost" 
+   cat ~/.ssh/id_rsa.pub >> ~/.ssh/authorized_keys
+   ```
+
+3. Run the `ansible-playbook` command under `ansible-workspace` directory 
+   in the control machine to trigger deployment:
+
+   - With independent control and deployed host: 
+   ```shell
    ansible-playbook -i hosts playbook.yaml
+   ```
+
+   - With independent control and deployed host: 
+   ```shell
+   # -e == --extra-vars
+   ansible-playbook -i hosts playbook.yaml -e "specified_host=tallyblog-local-deploy"
    ```

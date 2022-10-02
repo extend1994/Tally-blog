@@ -1,5 +1,5 @@
 ---
-- hosts: tallyblog
+- hosts: "{{ specified_host | default('tallyblog-remote-deploy') }}"
   vars:
     remote_username: ubuntu
     nvm_version: v0.39.1
